@@ -1,0 +1,63 @@
+### Myndbreyting 1.2
+
+Hugsanir mínar voru um Emmu í strætóferðinni heim. Fyrir utanaðkomandi aðila held ég að auðvelt væri að gera lítið úr gildi "bestu vinkonu", en þegar þú ert barn þá er enginn mikilvægari. Við Emma höfðum verið bestu vinkonur hvor annarrar síðan í fyrsta bekk í grunnskóla. Það hafði ekki dugað okkur að eyða tíma okkar saman í skólanum, svo við skiptumst á að heimsækja hvora aðra um helgar. Ég man að mamma mín hafði sagt að við værum svo nánar að við værum eins og systur.
+
+Slík vinátta er náin og innileg. Ekki á klúran hátt, heldur varðandi að halda engu leyndu fyrir hvort öðru, deila varnarleysi og veikleikum.
+
+Svo þegar ég kom heim úr sumarbúðum, aðeins viku áður en við áttum að byrja í menntaskóla, og komst að því að núna vildi hún ekki tala við mig? Að hún kallaði núna Sophiu bestu vinkonu sína? Og að uppgötva að hún var að notfæra sér öll þessi leyndarmál og veikleika sem ég hafði deilt með henni til að særa mig á eins grimmilegan hátt og hún gat látið sér detta í hug? Það var niðurbrjótandi. Í raun var engin betri leið að lýsa því.
+
+Ófús að dvelja á því lengur beindi ég athyglinni að skólatöskunni minni, setti hana í sætið við hliðina á mér og fór í gegnum innihaldið. Taskan hafði litast af öllum safanum og mig grunaði að ég þyrfti að fá mér nýja. Ég hafði keypt hana fyrir aðeins fjórum mánuðum síðan, eftir að sú gamla hafði horfið úr skápnum mínum, hún hafði kostað 12 dali, svo það var svosem ekki stórmál. Staðreyndin að glósubækurnar, kennslubækurnar og lestrarbækurnar tvær sem ég hafði troðið í töskuna voru gegnsósa af greipaldin safa var meira íþyngjandi. Mig grunaði að stelpan sem hellti greipaldin safanum hafði vísvitandi reynt að láta bununa lenda ofan í opinni töskunni þegar hún hellti honum. Ég sá að listaverkið mitt fyrir miðannaskil í List og sköpun var ónýtt, pappaboxið sem ég hafði sett það í var samfallið. Sá hluti var mér að kenna.
+
+Hjartað mitt sökk þegar ég fann glósubókina með hvítu og svörtu kápunni. Hornið á henni var blautt, nærri fjórðungur af hverri blaðsíðu var litaður fjólublar. Blekið hafði skolast til og blaðsíðurnar voru þegar orðnar bugðóttar.
+
+Þessi glósubók var - hafði verið - minnispunktar og dagbók fyrir hetjuferil minn. Prófanir og æfingar sem ég hafði gert með kraftana mína, síður af yfirstrikuðum nafnatillögum, jafnvel málin fyrir búninginn sem ég var að vinna við að útbúa. Eftir að Emma Madison og Sophia höfðu stolið gömlu töskunni minni og fleygt innihaldinu í ruslakörfuna hafði ég áttað mig á hversu hættulegt væri að hafa allt skrifað svona niður. Ég hafði afritað allt yfir í nýja glósubók á einföldu dulmáli og skrifað frá botni og upp. Núna var sú glósubók skemmd og ég sá fram á að þurfa að afrita um tvöhundruð blaðsíður af ítarlegum texta í nýja glósubók ef ég vildi varðveita upplýsingarnar. Ef ég gat yfir höfuð munað hvað var á öllum eyðilögðu síðunum.
+
+Strætisvagninn stoppaði einni húsaröð frá húsinu mínu, og ég steig út og reyndi að leiða hjá mér athyglina sem ég var að fá. Þrátt fyrir störurnar, ónýtu glósubókina og þá staðreynd að ég ákvað að skrópa í tímunum eftir hádegi án þess að tala við neinn, þá leið mér betur eftir því sem ég nálgaðist að vera komin heim. Það var virkilega gott að geta hætt að vera stöðugt á verði, að þurfa ekki að líta um öxl og geta tekið pásu frá því að velta fyrir mér hvenær næsta atvik mundi gerast. Ég hleypti mér inn í húsið fór beint í sturtu, tók ekki einu sinni af mér skólatöskuna fyrr en ég var komin inn í baðherbergið.
+
+Ég stóð undir bununni með fötin mín ofan í baðkarinu og vonaði að vatnið mundi ná að skola megnið af safanum úr þeim. Ég velti fyrir mér. Ég veit ekki hvaðan ég hafði það en einhverntímann hafði ég kynnst þeirri hugmynd að taka eitthvað neikvætt og breyta því í jákvætt. Ég reyndi að taka atburði dagsins og snúa þeim á hvolf í höfðinu á mér til að finna einhvern jákvæðan vinkil á þeim.
+
+Ókei, svo það fyrsta sem kom upp í hugann var "Enn ein ástæðan til að drepa tríóið". Það var ekki full alvara á bak við hugmyndina - ég var reið, en ekki þannig að ég væri í alvöru að fara að drepa þær. Einhvern veginn grunaði mig að ég mundi skaða sjálfa mig áður en ég næði að skaða þær. Ég var niðurlægð, örg, reið og alltaf hafði ég vopn til reiðu - kraftana mína. Það var eins og að vera öllum stundum með hlaðna byssu á sér. Nema að krafturinn var ekki það yfirþyrmandi góður, svo kannski meira eins og að vera með rafbyssu. Það var erfitt að hugsa ekki um að nota hann þegar kringumstæður urðu mjög slæmar. Samt, mig grunaði að ég hefði ekki þetta drápseðli í mér.
+
+Nei, sagði ég við sjálfa mig og neyddi fram jákvæðari hugsanir. Voru einhverjar jákvæðar hliðar? Listaverkefni eyðilagt, föt líklega varanlega lituð, þurfa að kaupa nýja skólatösku... glósubók. Hugur minn einhvern veginn festist á því síðastnefnda.
+
+Ég skrúfaði fyrir sturtuna, greip þurrt handklæði og hugsaði. Ég vafði handklæðinu utan um mig, og í stað þess að fara í herbergið mitt að klæða mig setti ég blautu fötin mín í þvottakörfu, greip töskuna mína og fór niður í gegnum eldhúsið og niður í kjallara.
+
+Við bjuggum í gömlu húsi, og kjallarinn hafði aldrei verið endurnýjaður. Steinsteyptir veggir og gólf og í loftinu voru nakin þyl og rafmagnssnúrur. Ofnarnir höfðu áður verið knúnir með kolum og kolahleri var enn til staðar, um sextíu sinnum sextíu sentimetrar að stærð, þar sem kolabílar höfðu sturtað vetrarbirgðum af kolum til að kynda húsið. Kolarennan var upphífð, en um það leyti sem ég var að afrita fyrstu "ofurkrafta minnisbókina" mína yfir í dulkóðaða minnisbók ákvað ég að fara sérstaklega varlega og gerast skapandi með friðhelgi mína. Það var þá sem ég byrjaði að nota hlerann.
+
+Ég losaði eina skrúfu og fjarlægði timburplötu með flagnandi hvítri málningu sem var skorðuð fyrir neðri enda kolarennunnar. Ég greip íþróttapoka innan úr rennunni og setti trjáplötuna aftur á sinn stað án þess að festa skrúfuna.
+
+Ég tæmdi innihald íþróttapokans á ónotaðan vinnubekk sem fyrri eigandi hafði skilið eftir í kjallaranum og opnaði gluggana sem voru í sömu hæð og innkeyrslan og framgarðurinn. Ég lokaði augunum og eyddi mínútu í að æfa kraftinn minn. Ég var ekki einfaldlega að smala öllum óværu pöddum í tveggja götu radíus. Ég var að velja úr, og var að safna töluverðum fjölda.
+
+Það mundi taka tíma fyrir þær allar að koma. Pöddur gátu ferðast hraðar en fólk hefði haldið þegar þær ferðuðust af sterkri hvöt í beina línu, en engu að síður voru tvær götur langt ferðalag fyrir slík smádýr. Ég notaði tímann og opnaði poka og fór í gegnum innihaldið. Búningurinn minn.
+
+Fyrstu köngulærnar hófu að koma inn um opna gluggana og safnast saman á vinnubekknum. Krafturinn minn gaf mér ekki þekkingu um heiti skordýrategunda sem ég var að vinna með, en hver sem er þekkti köngulærnar sem skriðu inn í herbergið. Þetta var svarta ekkjan. Ein af hættulegri köngulóm sem þrifust í bandaríkjunum. Bit hennar gat verið banvænt, þó það væri það sjaldnast, og hún var gjörn á að bíta við minnsta áreiti. Jafnvel undir fullkominni stjórn minni hræddu þær mig smá. Að beiðni minni trítluðu margir tugir köngulóa á lykilstaði á vinnuborðinu og fóru að teikna útlínur með vef sínum, þær spunnu vef þvert á hvora aðra vefuðu saman í eitt samfellt verk.
+
+Fyrir þremur mánuðum síðan, eftir að ég hafði jafnað mig af bólfestu kraftanna minna, hafði ég byrjað að vinna að markmiðinu sem ég hafði sett mér. Það fól í sér reglubundnar æfingar, þjálfa notkun kraftanna, stunda rannsóknir og útbúa búning. Búningagerð var meira erfiðisverk en fólk hefði haldið. Á meðan meðlimir í opinberum teymum höfðu örugglega eitthvað bakland að leita til varðandi búningagerð, þurftum við hin að kaupa búninga eða efni í búninga og leggjast í saumaskap, eða búa þá til alveg frá grunni. Sérhver valkostur hafði sína galla. Ef þú keyptir búning á netinu áttirðu á hættu að vera rakin, sem gæti komið upp um hver þú værir áður en þú næðir einu sinni að klæða þig í búninginn. Þú gætir saumað saman þinn eigin búning úr keyptu efni, en mjög fáir höfðu getu til að gera það og láta búninginn líta vel út. Síðasti valkosturinn, að gera búning frá grunni, var gríðarlega mikil vinna og þú gast alveg lent í vandamálum hinna valkostanna - að verða rakin eða enda með ljótan búning - eftir því hvaðan þú sóttir efnivið og hvernig þú fórst að því.
+
+Á annarri viku eftir að ég hafði náð valdi á kröftunum mínum, þegar ég var enn að átta mig á hvað var að gerast, hafði ég séð heimildarþátt á Discovery Channel um fatnað sem var gerður til að þola bjarnarárásir. Þessi fatnaður var búinn til úr gervi köngulóarsilki, sem varð mér innblástur að þessu verkefni. Til hvers að nota gervi efni þegar þú getur framleitt alvöru efnið?
+
+Gott og vel, svo það hafði verið erfiðara en ég hélt. Það dugði ekki bara einhver köngulóarvefur, og svarta ekkjan var sjaldséð könguló í norðausturhluta Bandaríkjanna þar sem var almennt kaldara, en með mér vann eitt lykilatriði varðandi Brockton Bay sem gerði staðinn að ferðamannastað og heitu svæði fyrir skikkjur, og gerði það að verkum að svarta ekkjan gat lifað hérna og jafnvel dafnað vel. Nefnilega, að það var heitt hérna. Þökk sé landslaginu í kring og austurströndinni, þá var Brockton Bay með einhvern mildasta vetur á norðaustursvæðinu, og einhver notalegustu sumurin. Bæði svarta ekkjan og fólk hlaupandi um í spandex búningum var þakklátt fyrir það.
+
+Með kraftinum mínum hafði ég séð til þess að köngulærnar gátu fjölgað sér. Ég hafði geymt þær á öruggum stöðum og alið þær á bráð sem ég sendi til þeirra. Ég hafði virkjað þörf þeirra til að eðla sig og verpa eggjum eins og það væri sumar, sent meiri bráð til hinna hundruða ungviða sem komu úr eggjunum og hafði upp úr erfiðinu öðlast ógrynni búninga vefara. Stærsti vandinn var að svarta ekkjan ekki hjarðdýr heldur eignar hún sér svæði, svo ég hafði þurft að dreifa úr þeim svo þær dræpu ekki hvor aðra þegar ég var ekki til staðar til að stjórna þeim. Einu sinni í viku eða svo, þegar ég fór út að skokka á morgnana, stokkaði ég upp stöðunum sem köngulærnar héldu til á svo ég hefði ávallt aðgang að óþreyttum og pattaralegum köngulóm tilbúnum að spinna vef. Það tryggði að köngulærnar voru ávallt tilbúnar að vinna í búningnum síðdegis, eftir skóla.
+
+Já, ég átti mér ekkert líf.
+
+En ég var komin með klikkaðan búning.
+
+Hann var ekkert sérstaklega vel útlítandi ennþá. Efnið var óhreint gulgrátt. Brynvörðu hlutarnir voru gerðir úr fínlega samsettum skordýraskrápum sem ég hafði unnið úr skordýrum í nágrenninu og svo styrkt með draglínu silki. Í lokin enduðu brynvörðu hlutarnir á að vera dökkflekkótt brúngráir. Það var í góðu lagi fyrir mér. Þegar verkið væri fullklárað ætlaði ég að lita efnið og mála brynjuna.
+
+Ástæðan fyrir hversu sátt ég var með búninginn var hve sveigjanlegur, endingargóður og ótrúlega léttur hann var, þrátt fyrir alla brynvörðu hlutana sem ég hafði sett á hann. Á einum tímapunkti ætlaði ég að laga aðeins til málin á öðrum fætinum, og þegar ég reyndi að klippa efnið komst ég að því að ég gat ekki skorið það með x-acto hníf. Ég endaði á að þurfa vírklippur og jafnvel með þeim hafði það verið erfiðisvinna. Eins vel og ég vissi, uppfyllti þessi búningur allt sem ofurhetja vildi í búning.
+
+Ég var ekki alveg til í að prófa það, en ég hafði vonir um að efnið væri skothelt. Eða að minnsta kosti að brynvörðu hlutarnir yfir mikilvægustu líkamssvæðin væru skotheldir.
+
+Áætlunin var að ljúka gerð búningsins í þessum mánuði, síðan þegar færi að líða að lokum skólaársins og sumarið hæfist, mundi ég taka stökkið yfir í ofurhetjuheiminn.
+
+En áætlunin hafði breyst. Ég vafði af mér handklæðið og lagði það á hornið á vinnubekknum, tók upp búninginn og mátaði hann við líkamann í hundraðasta skiptið. Köngulærnar færðu sig hlýðilega úr vegi mínum þegar ég gerði það.
+
+Þegar ég hafði staðið í sturtunni og reynt að finna góðar hliðar á vandræðum dagsins, höfðu hugsanir mínar læst sig á glósubókina mína. Ég hafði áttað mig á að ég var að fresta hlutunum óþarflega mikið. Ég var endalaust að skipuleggja, undirbúa, íhuga alla möguleika. Það hafði alltaf verið meira til að undirbúa, fleiri hlutir til að læra eða prófa. Eyðilegging glósubókarinnar hafði virkað eins og brennandi brú. Ég gat ekki lagt í að afrita hana í nýja bók eða byrjað á nýrri bók án þess að seinka leikáætlun minni um í það minnsta viku. Ég varð að halda áfram.
+
+Það var kominn tími til að gera það. Ég setti á mig annan hanskann og kreppti hnefann. Ég mundi fara út í næstu viku - nei. Ekki meiri tafir. Um þessa helgi yrði ég tilbúin.
+
+---
+
+[Fyrri hluti](Ormur-01.01-Myndbreyting.md) - [Næsti hluti](Ormur-01.03.md)
