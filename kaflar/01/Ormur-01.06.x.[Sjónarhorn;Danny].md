@@ -82,4 +82,4 @@ Hann dreymdi um hafið.
 
 ---
 
-[Fyrri hluti](Ormur-01.06.md) - Næsti hluti
+[Fyrri hluti](Ormur-01.06.md) - [Næsti kafli](../02/Ormur-02.01-Aðdróttun.md)
