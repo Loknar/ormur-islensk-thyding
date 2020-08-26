@@ -24,7 +24,7 @@ Hann steig nær mér og hallaði höfðinu aðeins til hliðar, "Þú lítur ekk
 
 "Þú ert að segja sannleikann," sagði hann. Þetta var bein yfirlýsing, og mér brá smá. Mig langaði að spurja hann hvernig hann vissi það, en ég vildi ekki segja neitt sem gæti fengið hann til að skipta um skoðun.
 
-Hann kom nær, virti mig fyrir mér þar sem ég sat með hendurnar utanum hnén á mér, hann spurði, "Ertu meidd? Þarftu aðhlynningu á sjúkrahúsi?"
+Hann kom nær, virti mig fyrir sér þar sem ég sat með hendurnar utanum hnén á mér, hann spurði, "Ertu meidd? Þarftu aðhlynningu á sjúkrahúsi?"
 
 "Nei," sagði ég. "Ég held ekki. Ég er jafn hissa og þú."
 
