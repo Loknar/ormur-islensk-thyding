@@ -36,21 +36,21 @@ Wiki grunnurinn tilgreindi mikið til sömu upplýsingar og Armsmaster hafði sa
 
 Ég dró andann djúpt og andaði rólega frá mér. Ég vissi ekki hvernig mér ætti að líða. Í raun ætti ég réttilega að vera reið Armsmaster fyrir að eigna sér svona heiðurinn af bardaga sem kostaði mig næstum líf mitt. Þess í stað fann ég spennu og tilhlökkun. Mig langaði að hrista öxlina á sessunaut mínum, benda á skjáinn og segja: "Það var ég, ég gerði þetta mögulegt! Ég!"
 
-Með endurnýjuðum eldmóð skipti ég yfir í spjallborðaflipann og fór að skima yfir hvað fólk var að segja um fréttirnar af handtöku Lung. Það var ein færsla af aðdáanda Lung eða mögulega gengismeðlimi ABB sem hótaði ofbeldi gegn Armsmaster. Fjöldi færslna voru beiðnir um ítarlegri upplýsingar um bardagann. Ég stoppaði á færslu þar sem velt var fyrir sér möguleikanum á að Bakuda gæti notað stórfellda sprengjuhótun sem gæti drepið þúsundir eða jafnvel hundraðþúsund óbreytta borgara til að krefjast lausnar Lung.
+Með endurnýjuðum eldmóð skipti ég yfir í spjallborðaflipann og fór að skima yfir hvað fólk var að segja um fréttirnar af handtöku Lung. Það var ein færsla skrifuð af aðdáanda Lung eða mögulega gengismeðlimi ABB sem hótaði ofbeldi gegn Armsmaster. Fjöldi færslna voru beiðnir um ítarlegri upplýsingar um bardagann. Ég stoppaði á færslu þar sem velt var upp möguleikanum á að Bakuda gæti notað stórfellda sprengjuhótun sem kostað gæti þúsundir eða jafnvel hundraðþúsund óbreytta borgara lífið til að krefjast þess að Lung yrði látinn laus.
 
-Ég reyndi að leiða möguleikann hjá mér. Ef það gerðist yrði það á ábyrgð ofurhetja sem væru betur útbúnar og reynsluríkari en ég.
+Ég reyndi að leiða möguleikann á sprengjuhótun hjá mér. Ef það gerðist yrði það á ábyrgð ofurhetja sem væru betur útbúnar og reynsluríkari en ég.
 
 Skyndilega fattaði ég að mér hafði láðst að leita að einni manneskju. Sjálfri mér. Ég opnaði ítarlegu leitarsíðuna fyrir Parahumans.net spjallborðið og leitaði að hinum ýmsu orðum. Ég prófaði skordýr, könguló, flugnasveimi, pöddur, plága og fjölda annarra orða sem komu upp í hugann þegar ég reyndi að giska á hvaða orð fólk gæti notað til að lýsa mér eða gjörðum mínum seinustu nótt. Ég skorðaði leitina við 12 klukkustundir aftur í tímann og virkjaði leitina.
 
-Leitin skilaði tveimur færslum. Sú fyrri var um illmenni sem gekk undir nafninu Pestilence, virk í Bretlandi. Svo virtist sem Pestilence væri ein af skikkjunum sem gátu notað 'galdra'. Það er að segja ef þú trúðir að galdrar væru í alvöru til og ekki væri um að ræða einhverja undarlega eða blekkjandi lýsingu á einhverjum ofurkrafti.
+Leitin skilaði tveimur færslum. Sú fyrri var um illmenni sem gekk undir nafninu Pestilence, virk í Bretlandi. Svo virtist sem Pestilence væri ein af skikkjunum sem gátu notað 'galdra'. Það er að segja ef þú trúðir að galdrar væru í alvöru til og ekki væri um að ræða einhverja undarlega eða blekkjandi lýsingu á einhverjum sérstökum ofurkrafti.
 
-Seinni færslan var listuð undir umræðuefninu 'Tengingar', þar sem algengt var að fólk og iðulega kvenfólk sem hafði verið bjargað undan háska skildu eftir tengiliðaupplýsingar sínar fyrir stórbrotnar hetjur sínar, þar sem samkomur og jafnvel ráðstefnur voru skipulagðar, sem og atvinnutilboð fyrir skikkjur og fólk með dálæti á skikkjum. Flestar 'Tengingar' færslur voru dularfullar eða óljósar og vísuðu til hluta sem einungis aðilinn sem færslunni var beint að gat vitað.
+Seinni færslan var listuð undir umræðuefninu 'Tengingar', þar sem algengt var að fólk og iðulega kvenfólk sem hafði verið bjargað undan háska skildu eftir tengiliðaupplýsingar fyrir stórbrotnar hetjur sínar, þar sem samkomur og jafnvel ráðstefnur voru skipulagðar, sem og atvinnutilboð fyrir skikkjur og fólk með dálæti á skikkjum. Flestar færslur undir 'Tengingar' voru dularfullar eða óljósar og vísuðu til hluta sem einungis aðilinn sem færslunni var beint að gat vitað.
 
 Titill færslunnar var einfaldlega 'Padda'.
 
-Ég opnaði hana og beið óþreyjufull á meðan gamla tölvan og úrelta skólanettengingin hlóðu upp síðunni. Færslan var stutt.
+Ég opnaði hana og beið óþreyjufull á meðan gamla tölvan og úrelta skólanets modem tengingin börðust við að hlaða upp síðunni. Færslan var stutt.
 
-> Subject: Padda
+> Umræðuefni: Padda
 >
 > Stend í þakkarskuld. Vil endurgjalda greiðann. Hittast?
 >
