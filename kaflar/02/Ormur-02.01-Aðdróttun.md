@@ -50,7 +50,7 @@ Hann var þegar labbandi í átt að ísskápnum þegar ég hafði svarað. Hann
 
 "Hann ætlar að gerast einn af undirmönnum Über og Leet."
 
-Ég lyfti augabrúnunum. Über og Leet voru ofurillmenni með tölvuleikjaþema. Þeir voru eiginlega eins óhæfir og illmenni gátu verið samhliða því að forðast endalaust handtöku. Þeir komust varla inn á B-lista.
+Ég lyfti augabrúnunum. Über og Leet voru ofurillmenni með tölvuleikjaþema. Þeir voru eiginlega eins óhæfir og illmenni gátu verið samhliða því að forðast endalaust réttvísnina. Þeir komust varla inn á B-lista.
 
 "Munu þeir láta hann ganga í einkennisbúningi? Skærir litir, tron þema?"
 
@@ -66,7 +66,7 @@ Við borðuðum hljóðalaust í eina tvær mínútur.
 
 "Eins og ég sagði," sagði ég loks, horfandi niður á diskinn minn, "ég bara gat ekki sofið. Hugurinn reikaði endalaust. Ég fór framúr rúminu og reyndi að gera líkamsræktaræfingar á gólfinu, en það hjálpaði ekki, svo ég endaði á að taka næturskokk um hverfið." Þetta var ekki alveg haugalygi, ég hafði átt slíkar nætur og ákveðið að taka næturskokk til að róa hugann, en síðastliðin nótt hafði að vísu verið eitthvað alveg annað.
 
-"Í alvöru talað Taylor," svaraði pabbi, "Þetta er enganvegin svæði til að ferðast um fótgangandi um miðja nótt."
+"Í alvöru talað Taylor," svaraði pabbi, "Þetta er enganvegin öruggt svæði til að ferðast um fótgangandi um miðja nótt."
 
 "Ég var með piparúðann með mér," svaraði ég í mótmælatón og full dramatískt. Það var í það minnsta sannleikurinn.
 
@@ -74,15 +74,15 @@ Við borðuðum hljóðalaust í eina tvær mínútur.
 
 Eða vopnaður eldkröftum og getu til að vaxa rakvélabrynju og klær? Ég fann skömmustutilfinningu malla í maganum á mér yfir áhyggjum pabba af mér. Tilfinningin var sérstaklega beitt núna þar sem áhyggjur hans voru sérstaklega réttmætar. Ég hafði verið hársbreidd frá því að týna lífinu í nótt.
 
-"Hvað er að angra þig svo mikið, að það veldur þér kvíða og rænir þig svefni?" spurði hann mig.
+"Hvað er að angra þig svo mikið, að það veldur þér kvíða sem rænir þig svefni?" spurði hann mig.
 
-"Skólinn," svaraði ég og barðist við kökk sem myndaðist í hálsinum, "Vinir, eða skortur þar á."
+"Skólinn," svaraði ég og barðist við kökk sem myndaðist skyndilega í hálsinum, "Vinir, eða skortur þar á."
 
 "Er það enn í gangi? Hefur það ekkert lagast?" spurði hann, og passaði sig greinilega á að nefna ekki fílinn í stofunni, gerendurna.
 
-Ef það hefði lagast þá væri það ekki að angra mig, hugsaði ég. Ég yppti bara öxlum og neyddi mig til að fá mér annan bita af ristabrauðinu. Öxlin mín tók smá kipp við sársaukann frá marblettnum sem ég hafði fengið um nóttina. Eins mikið og lystin var horfin þá vissi ég að maginn í mér mundi gaula um hádegisbilið ef ég neyddi ekki í mig restina sem ég var með á disknum mínum. Og það var án þess að taka með í reikninginn brennsluna við skokkið, hvað þá alla áreynslu næturinnar?
+Ef það hefði lagast þá væri það ekki að angra mig, hugsaði ég. Ég yppti bara öxlum og neyddi mig til að fá mér annan bita af ristabrauðinu. Öxlin mín tók smá kipp við sársaukann frá marblettnum sem ég hafði fengið um nóttina. Eins mikið og matarlystin var horfin þá vissi ég að maginn í mér mundi gaula um hádegisbilið ef ég neyddi ekki í mig restina sem ég var með á disknum mínum. Og það var án þess að taka með í reikninginn brennsluna við skokkið, hvað þá alla áreynslu næturinnar?
 
-Þegar pabbi minn áttaði sig á að ég hefði ekki svar fyrir hann, hélt hann áfram að borða. Hann átti eftir einn bita þegar hann lét gaffalinn falla á diskinn svo það glamraði.
+Þegar pabbi minn áttaði sig á að ég hefði ekki svar fyrir hann, hélt hann áfram að borða. Hann átti eftir einn bita þegar hann lét gaffalinn falla á diskinn svo í honum glamraði.
 
 "Ekki meira næturbrölt," sagði hann, "Annars set ég bjöllur á útihurðarnar."
 
@@ -112,4 +112,4 @@ Hann brosti til mín með svip sem leit út eins og afsökunarbeiðni á móti.
 
 ---
 
-[Fyrri kafli](../01/Ormur-01.06.x.[Sjónarhorn;Danny].md) - Næsti hluti
+[Fyrri kafli](../01/Ormur-01.06.x.[Sjónarhorn;Danny].md) - [Næsti hluti](Ormur-02.02.md)
