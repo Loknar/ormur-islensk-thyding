@@ -1,12 +1,12 @@
 ### Myndbreyting 1.2
 
-Hugsanir mínar voru um Emmu í strætóferðinni heim. Fyrir utanaðkomandi aðila held ég að auðvelt væri að gera lítið úr gildi "bestu vinkonu", en þegar þú ert barn þá er enginn mikilvægari. Við Emma höfðum verið bestu vinkonur  síðan í fyrsta bekk í grunnskóla. Það hafði ekki dugað okkur að eyða tíma okkar saman í skólanum, svo við skiptumst á að heimsækja hvora aðra um helgar. Ég man að mamma mín hafði sagt að við værum svo nánar að við værum eins og systur.
+Hugsanir mínar voru um Emmu í strætóferðinni heim. Fyrir utanaðkomandi aðila held ég að auðvelt væri að gera lítið úr gildi "bestu vinkonu", en þegar þú ert barn þá er enginn mikilvægari. Við Emma höfðum verið bestu vinkonur  síðan í fyrsta bekk í grunnskóla. Það hafði ekki dugað okkur að eyða tíma okkar saman í skólanum, svo við skiptumst á að heimsækja hvora aðra um helgar. Ég man að mamma hafði sagt að við værum svo nánar að við værum eins og systur.
 
 Slík vinátta er náin og innileg. Ekki á klúran hátt, heldur varðandi að halda engu leyndu fyrir hvor annarri, deila varnarleysi og veikleikum.
 
-Svo þegar ég kom heim úr sumarbúðum, aðeins viku áður en við áttum að byrja fyrsta árið í menntaskóla, og komst að því að hún vildi ekki lengur tala við mig? Að hún kallaði núna Sophiu bestu vinkonu sína? Og að uppgötva að hún notfærði sér öll þessi leyndarmál og veikleika sem ég hafði deilt með henni til að særa mig á eins grimmilegan hátt og hún gat látið sér detta í hug? Það var niðurbrjótandi. Í raun var engin betri leið að lýsa því.
+Þannig að þegar ég kom heim úr sumarbúðum, aðeins viku áður en við áttum að byrja fyrsta árið í menntaskóla, og komst að því að hún vildi ekki lengur tala við mig? Að hún kallaði núna Sophiu bestu vinkonu sína? Og að uppgötva að hún notfærði sér öll þessi leyndarmál og veikleika sem ég hafði deilt með henni til að særa mig á eins grimmilegan hátt og hún gat látið sér detta í hug? Það var niðurbrjótandi. Í raun var engin betri leið að lýsa því.
 
-Ófús að dvelja á þessu lengur beindi ég athyglinni að skólatöskunni minni, setti hana í sætið við hliðina á mér og fór í gegnum innihaldið. Taskan hafði litast af öllum safanum og mig grunaði að ég þyrfti að fá mér nýja. Ég hafði keypt hana fyrir aðeins fjórum mánuðum síðan, eftir að sú gamla hafði horfið úr skápnum mínum, hún hafði kostað 12 dali, svo það var svosem ekki stórmál. Staðreyndin að glósubækurnar, kennslubækurnar og lestrarbækurnar tvær sem ég hafði troðið í töskuna voru gegnsósa af greipaldin safa var meira íþyngjandi. Mig grunaði að sú sem hellti greipaldin safanum hefði vísvitandi reynt að láta bununa lenda ofan í opinni töskunni. Ég sá að listaverkið mitt fyrir miðannaskil í List og sköpun var ónýtt, pappaboxið sem ég hafði sett það í var samfallið. Það var að vísu bræðiskastinu mínu að kenna en ekki safabununni.
+Ófús að dvelja á þessu lengur beindi ég athyglinni að skólatöskunni minni, setti hana í sætið við hliðina á mér og fór í gegnum innihaldið. Taskan hafði litast af öllum safanum og mig grunaði að ég þyrfti að fá mér nýja. Ég hafði keypt hana fyrir aðeins fjórum mánuðum síðan, eftir að sú gamla hafði horfið úr skápnum mínum, hún hafði kostað 12 dali, svo það var svosem ekki stórmál. Staðreyndin að glósubækurnar, kennslubækurnar og lestrarbækurnar tvær sem ég hafði troðið í töskuna voru gegnsósa af greipaldin safa var meira íþyngjandi. Mig grunaði að sú sem hellti greipaldin safanum hefði vísvitandi reynt að láta bununa lenda ofan í opinni töskunni. Ég sá að listaverkið mitt fyrir miðannaskil í List og sköpun var ónýtt, pappaboxið sem ég hafði sett það í var samfallið. Það var að vísu bræðiskastinu mínu að kenna.
 
 Hjartað mitt sökk þegar ég fann glósubókina með hvítu og svörtu kápunni. Hornið á henni var blautt, nærri fjórðungur af hverri blaðsíðu var litaður fjólublar. Blekið hafði skolast til og blaðsíðurnar voru þegar orðnar bugðóttar.
 
@@ -56,7 +56,7 @@ En áætlunin hafði breyst. Ég vafði af mér handklæðið og lagði það á
 
 Þegar ég hafði staðið í sturtunni og reynt að finna góðar hliðar á óförum dagsins höfðu hugsanir mínar læst sig á glósubókina mína. Ég hafði áttað mig á að ég var að fresta hlutunum óþarflega mikið. Ég var endalaust að skipuleggja, undirbúa, íhuga alla möguleika. Það hafði alltaf verið meira til að undirbúa, fleiri hlutir til að læra eða prófa. Eyðilegging glósubókarinnar hafði virkað eins og brennandi brú. Ég gat ekki lagt í að afrita hana í nýja bók eða byrjað á nýrri bók án þess að seinka leikáætluninni minni um í að minnsta kosti viku. Ég varð að halda áfram.
 
-Það var kominn tími til að gera það. Ég setti á mig annan hanskann og kreppti hnefann. Ég mundi fara út í næstu viku - nei. Engar fleiri tafir. Um þessa helgi yrði ég tilbúin.
+Það var kominn tími til að gera það. Ég setti á mig annan hanskann og kreppti hnefann. Ég mundi fara út í næstu viku - nei. Ekki meiri tafir. Um þessa helgi yrði ég tilbúin.
 
 ---
 
