@@ -64,4 +64,4 @@ Tvær síður af innleggjum höfðu hlaðist á færsluna. Þrjár manneskjur h�
 
 ---
 
-[Fyrri hluti](Ormur-02.01-Aðdróttun.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.01-Aðdróttun.md) - [Næsti hluti](Ormur-02.03.md)
