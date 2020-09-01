@@ -58,7 +58,7 @@ Orðin hennar pössuðu ekki við aðstæðurnar. Ég hafði haldið ró minni �
 
 Orðin mín dóu í hálsinum á mér þegar ég heyrði það sem hún sagði.
 
-Tæpu áru áður en við byrjuðum í menntaskóla hafði ég verið í heimsókn hjá henni, við borðuðum morgunmat og spiluðum háværa tónlist. Eldri systir Emmu hafði komið niður með símann. Við lækkuðum í tónlistinni, pabbi hafði verið á hinni línunni, hann hafði sagt mér með brostinni röddu að mamma hefði dáið í bílslysi.
+Tæpu ári áður en við byrjuðum í menntaskóla hafði ég verið í heimsókn hjá henni, við borðuðum morgunmat og spiluðum háværa tónlist. Eldri systir Emmu hafði komið niður með símann. Við lækkuðum í tónlistinni, pabbi hafði verið á hinni línunni, hann hafði sagt mér með brostinni röddu að mamma hefði dáið í bílslysi.
 
 Systir Emmu hafði skutlað mér heim og ég hafði veinað alla leiðina. Ég man að Emma grét líka, af samúð líklega. Hugsanlega vegna þess að henni fannst mamma mín vera svalasta fullorðna manneskja í heimi. Eða kannski var það vegna þess að á þessum tíma vorum við bestu vinkonur og hún vissi ekki hvernig hún ætti að hjálpa mér.
 
