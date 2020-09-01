@@ -24,7 +24,7 @@ Gegnbleytt með greipaldinsafa af þremur herfum, "Ég týndi henni," laug ég.
 
 "Þessar bækur eru ekki ódýrar, þeir rukka þrjátíuogfimm dali fyrir stykkið. Ég býst ekki við greiðslu núna, en-"
 
-"Ég skal borga þér það fyrir lok vikunnar," greið ég fram í fyrir hann.
+"Ég skal borga þér það fyrir lok vikunnar," greip ég fram í fyrir hann.
 
 Hann rétti mér eintak af kennslubókinni og ég leit yfir kennslustofuna áður en ég gekk í áttina að eina hópnum sem var ekki fullmannaður: Sparky og Greg. Við höfðum verið saman í hóp nokkrum sinnum áður, afgangurinn þegar allir vinir og grúppur höfðu hópað sig saman.
 
@@ -52,7 +52,7 @@ Með þessu tók kennslustundin dýfu. Fjögurra manna hópurinn sem Madison var
 
 "Þetta er virkilega vel gert, Taylor," sagði hann þegar hann var búinn.
 
-"Leyfið mér að sjá," sagði Julia. Áður en ég gat stöðvað hann afhenti Greg henni verkefnið mitt eins og góður strákur. Ég horfði á hana skima yfir það og henda því svo á borðið hjá hópnum hennar Madison. Þær flissuðu.
+"Má ég sjá?" sagði Julia. Áður en ég gat stöðvað hann afhenti Greg henni verkefnið mitt eins og góður strákur. Ég horfði á hana skima yfir það og henda því svo á borðið hjá hópnum hennar Madison. Þær flissuðu.
 
 "Komdu með það aftur," sagði ég.
 
@@ -60,7 +60,7 @@ Með þessu tók kennslustundin dýfu. Fjögurra manna hópurinn sem Madison var
 
 "Madison," sagði ég án þess að gefa Juliu gaum, "Skilaðu því."
 
-Madison, sæt, grönn og stelpan sem helmingur strákanna í stofunni var skotinn í, sneri sér við og náði að sameina svip og tón með slíkum hégóma að fullorðinn maður hefði hrokkið við, "Enginn er að tala við þig, Taylor."
+Madison, sæt, grönn, stelpan sem helmingur strákanna í stofunni var skotinn í, sneri sér við og náði að sameina svip og tón með slíkum hégóma að fullorðinn maður hefði hrokkið við, "Enginn er að tala við þig, Taylor."
 
 Þar fór það. Fyrir utan að hlaupa og klaga í kennarann þá var ekki séns að ég fengi verkefnið mitt aftur, og hverjum sem fannst sá valmöguleiki vera í boði hafði greinilega aldrei gengið í framhaldsskóla. Greg leit á mig og stelpurnar til skiptis í einhverskonar kvíðakasti áður en hann dró sig til baka í eitthvað þögult vonleysi, Sparky hvíldi höfuðið á borðinu sínu, annaðhvort sofandi eða nálægt því, ég sat eftir ein og það sauð á mér. Ég gerði tilraun til að reyna að bjarga því sem hægt var en að fá Greg til að einbeita sér var ómögulegt, hann bað mig endurtekið afsökunar og reyndi svo ítrekað að sannfæra stelpurnar væmnislega um að skila verkefninu mínu aftur. Tíminn rann út og herra Gladly valdi einn nemanda úr hverjum hóp til að kynna samantekt hópsins.
 
