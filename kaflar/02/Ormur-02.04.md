@@ -18,23 +18,23 @@
 
 "Hvað ætli hún noti til að þvo á sér andlitið? Stálullarþvottapúða?"
 
-"Hún ætti kannski að prófa það! Þá liti hún betur út!"
+"Hún ætti kannski að prófa það! Þá liti hún kannski betur út!"
 
 "Talar aldrei við neinn. Kannski veit hún að hún hljómar eins og hálfviti og hefur vit á því að þegja."
 
 "Nei, hún er ekki svo klár."
 
-Einungis meter fyrir aftan Emmu sá ég herra Gladly koma úr kennslustofunni. Fárið hélt áfram á meðan ég horfði á hann laga til skjalabunka í fanginu, finna lyklana sína í vasanum og læsa hurðinni.
+Einungis um einum metra fyrir aftan Emmu sá ég herra Gladly koma úr kennslustofunni. Umsátrið hélt áfram á meðan ég horfði á hann laga til skjalabunkann í fanginu, taka lyklana sína úr vasanum og læsa hurðinni.
 
 "Ef ég væri hún mundi ég fyrirfara mér" tilkynnti ein stelpan.
 
-Herra Gladly sneri sér og leit í augun á mér.
+Herra Gladly sneri sér og leit beint í augun á mér.
 
 "Eins gott að við erum ekki með henni í íþróttum. Getið þið ímyndað ykkur að þurfa að sjá hana í kvennaklefanum? Afsakið á meðan ég æli."
 
-Ég veit ekki hvaða svip ég bar, en ég veit að ég leit ekki út fyrir að vera ánægð. Fyrir minna en fimm mínútum hafði herra Gladly hvatt mig til að koma með sér upp á skrifstofu og segja skólastjóranum frá eineltinu. Hann setti upp dapurlegan svip þegar við horfðumst í augu, lagaði síðan til bunkann í fanginu og gekk í burtu.
+Ég veit ekki hvaða svip ég bar, en ég veit að ég leit ekki út fyrir að vera ánægð. Fyrir minna en fimm mínútum hafði herra Gladly hvatt mig til að koma með sér upp á skrifstofu og segja skólastjóranum frá eineltinu. Hann setti upp dapurlegan svip á meðan við horfðumst í augu, lagaði síðan til bunkann í fanginu og gekk í burtu.
 
-Ég var agndofa. Ég bara gat ekki vafið hugsunum mínum utanum það að hann kaus bara að hundsa þetta. Þegar hann hafði reynt að hjálpa mér skömmu áður, var það bara til að passa rassinn á sjálfum sér? Gera það sem var krafist af honum við svona uppákomum sem hann mátti ekki hunsa? Hafði hann gefist upp á mér? Eftir að hafa reynt að rétta fram hjálparhönd, á sinn fullkomlega árangurslausa hátt, eftir að ég hafði hafnað boði hans tvisvar, ákvað hann bara að ég væri ekki þess virði?
+Ég var agndofa. Ég bara gat ekki vafið hugsunum mínum utanum það að hann kaus bara að hunsa þetta. Hann hafði reynt að hjálpa mér skömmu áður, var það bara til að passa rassinn á sjálfum sér? Gera það sem var krafist af honum í svona uppákomum sem hann mátti ekki hunsa? Hafði hann gefist upp á mér? Eftir að hafa reynt að rétta fram hjálparhönd, á sinn fullkomlega árangurslausa hátt, eftir að ég hafði hafnað boði hans tvisvar, ákvað hann bara að ég væri ekki þess virði?
 
 "Þið hefðuð átt á sjá hópinn hennar klúðra öllu áðan. Það var erfitt að horfa upp á það."
 
