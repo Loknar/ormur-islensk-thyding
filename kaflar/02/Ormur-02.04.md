@@ -8,13 +8,13 @@
 
 Þrátt fyrir hvernig samtalið hljómaði þá voru þær að tala við mig. Þær voru bara að þykjast tala við hvor aðra. Það var bæði hnitmiðað hvernig þær spunnu fram ömurlega baktalandi hluti til að segja og á sama tíma láta á óþroskaðan hátt eins og ég væri ekki þarna. Bland af vanþroska og list sem var einungis á færi framhaldsskólanema. Ég hefði hlegið af fáránleikanum við þetta, ef það hefði ekki verið á minn eigin kostnað.
 
-Á leið minni frá kennslustofunni höfðu Emma, Madison og Sophia króað mig af úti í horni, með sex aðrar stelpur með sér. Þegar ég reyndi að troða mér framhjá þeim ýttu þær mér eða olnboguðu mig aftur út í horn, svo ég átti engra annarra kosta völ en að halla mér að glugganum, hlusta á meðan átta stelpnanna reittu af sér endaleysu af háði og spotti. Áður en ein lauk sér af byrjaði önnur. Á meðan á þessu stóð hélt Emma sig fyrir aftan hljóðlát og brosandi. Ég gat ekki mætt augnliti neinna hinna stelpnanna án þess að þær gjömmuðu ferskum straumi móðgana beint framan í mig, svo ég endaði á að stara einungis á Emmu.
+Á leið minni frá kennslustofunni höfðu Emma, Madison og Sophia króað mig af úti í horni, með sex aðrar stelpur með sér. Þegar ég reyndi að troða mér framhjá þeim ýttu þær mér eða olnboguðu mig aftur út í horn, svo ég átti engra annarra kosta völ en að halla mér að glugganum, hlusta á meðan átta stelpnanna reittu af sér endaleysu af háði og spotti. Áður en ein lauk sér af byrjaði önnur. Á meðan á þessu stóð hélt Emma sig fyrir aftan hljóðlát og brosti. Ég gat ekki mætt augnliti neinna hinna stelpnanna án þess að þær gjömmuðu ferskum straumi móðgana beint í fésið á mér, svo ég endaði á að stara bara á Emmu.
 
 "Ljótasta stelpan í bekknum."
 
-Það var eins og þær hugsuðu ekki lengur áður en þær hreyttu úr sér móðgununum, megnið af þeim var farið að stangast á við annað. Ein sagði til dæmis að ég væri lautlás, á meðan önnur sagði að strákur mundi gubba áður en hann næði að snerta mig. Þær lögðu á sig litla vinnu í að reyna að vera hnyttnar, sniðugar eða hitta í mark. Markmiðið virtist meira vera að skila tilfinningunni á bak við orðin með því að hamra þeim á mig endurtekið. Ef ég hefði fengið stundarkorn til að tala hefði ég mögulega getað komið með einhver góð andsvör handa þeim. Ef ég gæti aðeins stoppað þær af kæmust þær ekki aftur á það ról sem þær voru komnar í. Að því sögðu fann ég ekki orðin og mér bauðst engin opnun í samtalinu þar sem þær töluðu bara yfir mig þegar ég reyndi að segja eitthvað.
+Það var eins og þær hugsuðu ekki lengur áður en þær hreyttu úr sér móðgununum, megnið af þeim var farið að stangast á við hvor aðra. Ein sagði til dæmis að ég væri lautlás, á meðan önnur sagði að strákur mundi gubba áður en hann næði að snerta mig. Þær lögðu á sig litla vinnu í að reyna að vera hnyttnar, sniðugar eða hitta í mark. Markmiðið virtist meira vera að skila tilfinningunni á bak við orðin með því að bomba þeim á mig ítrekað. Ef ég hefði fengið hljóð í stundarkorn hefði ég mögulega getað komið með einhver góð andsvör handa þeim. Ef ég gæti aðeins stoppað þær af kæmust þær ekki aftur á það ról sem þær voru komnar í. Að því sögðu fann ég ekki orðin og mér bauðst engin opnun í samtalinu þar sem þær töluðu bara yfir mig þegar ég reyndi að segja eitthvað.
 
-Þó þessi tiltekna aðferð væri ný fyrir mig þá hafði ég mátt þola svona hluti í núna eitt og hálft ár. Á einhverjum tímapunkti hafði ég ákveðið að það væri auðveldara að halla sér aftur og taka því þegar kom að flestu svona. Þær vildu viðbrögð frá mér af því allt féll þeim í vil. Ef ég svaraði fyrir mig og þær unnu samt virtist það styrkja sjálfstraust þeirra. Ef mér tókst að svara fyrir mig og verða ofaná á einhvern hátt urðu þær einbeittari og illskeyttari næst þegar þær tóku mig fyrir. Svo af sömu ástæðu og ég hafði ekki tekið slaginn við Madison vegna heimanámsins sem hún hafði tekið frá mér þá hallaði ég mér upp að veggnum og beið eftir að þær fengju leið á þessum leik sínum eða yrðu nógu svangar til að fara að fá sér eitthvað í hádegismat.
+Þó þessi tiltekna aðferð væri ný fyrir mér þá hafði ég mátt þola svona hluti í núna eitt og hálft ár. Á einhverjum tímapunkti hafði ég ákveðið að það væri auðveldara að halla sér aftur og taka því þegar kom að flestu svona. Þær vildu viðbrögð frá mér af því allt féll þeim í vil. Ef ég svaraði fyrir mig en þær unnu samt virtist það styrkja sjálfstraust þeirra. Ef mér tókst að svara fyrir mig og verða ofaná á einhvern hátt urðu þær einbeittari og illskeyttari næst þegar þær tóku mig fyrir. Svo af sömu ástæðu og ég hafði ekki tekið slaginn við Madison um heimanámið sem hún hafði tekið frá mér þá hallaði ég mér upp að veggnum og beið eftir að þær fengju leið á þessum leik sínum eða yrðu nógu svangar til að fara að fá sér eitthvað í hádegismat.
 
 "Hvað ætli hún noti til að þvo á sér andlitið? Stálullarþvottapúða?"
 
@@ -60,29 +60,29 @@ Orðin mín dóu í hálsinum á mér þegar ég heyrði það sem hún sagði.
 
 Tæpu áru áður en við byrjuðum í menntaskóla hafði ég verið í heimsókn hjá henni, við borðuðum morgunmat og spiluðum háværa tónlist. Eldri systir Emmu hafði komið niður með símann. Við lækkuðum í tónlistinni, pabbi hafði verið á hinni línunni, hann hafði sagt mér með brostinni röddu að mamma hefði dáið í bílslysi.
 
-Systir Emmu hafði skutlað mér heim og ég hafði veinað alla leiðina þangað. Ég man að Emma grét líka, af samúð líklega. Hugsanlega vegna þess að henni fannst mamma mín vera svalasta fullorðna manneskja í heimi. Eða kannski var það vegna þess að á þessum tíma vorum við bestu vinkonur og hún vissi ekki hvernig hún ætti að hjálpa mér.
+Systir Emmu hafði skutlað mér heim og ég hafði veinað alla leiðina. Ég man að Emma grét líka, af samúð líklega. Hugsanlega vegna þess að henni fannst mamma mín vera svalasta fullorðna manneskja í heimi. Eða kannski var það vegna þess að á þessum tíma vorum við bestu vinkonur og hún vissi ekki hvernig hún ætti að hjálpa mér.
 
-Mig langaði lítið að rifja upp mánuðinn sem fylgdi, en minningar spruttu upp í hugann án þess að ég fengi nokkru ráðið. Ég mundi eftir að hafa heyrt til pabba skamma, gagnrýna og lesa reiðilega yfir líki móður minnar, vegna þess að hún hafði verið að senda smáskilaboð á meðan hún keyrði, að þetta væri henni einni að kenna. Á einum tímapunkti borðaði ég ekkert í fimm daga í röð, af því að pabbi var svo eyðilagður að ég var ekki á radarnum hans. Á endanum hafði ég leitað til Emmu eftir hjálp, beðið um að fá að vera með í mat hjá fjölskyldunni hennar í nokkra daga. Líklega lagði mamma Emmu saman tvo og tvo og talaði við pabba, af því að í framhaldinu tók hann sig á. Við komum okkur upp rútínu, svo við féllum ekki í sundur aftur sem fjölskylda.
+Mig langaði lítið að rifja upp mánuðinn sem fylgdi, en minningar spruttu upp í hugann án þess að ég fengi nokkru ráðið. Ég mundi eftir að hafa heyrt til pabba skamma, gagnrýna og lesa reiðilega yfir líki móður minnar, vegna þess að það hafði komið í ljós að hún hafði verið að senda smáskilaboð undir stýri, að bílslysið væri henni einni að kenna. Á einum tímapunkti borðaði ég ekkert í heila fimm daga í röð, af því að pabbi var svo eyðilagður að ég var ekki á radarnum hans. Á endanum hafði ég leitað til Emmu eftir hjálp, beðið um að fá að vera með í mat hjá fjölskyldunni hennar í nokkra daga. Líklega lagði mamma Emmu saman tvo og tvo og talaði við pabba, af því að í framhaldinu tók hann sig á. Við komum okkur upp rútínu, svo við myndum ekki brotna í sundur aftur sem fjölskylda.
 
-Mánuði eftir að mamma dó höfðum við Emma hangið saman í turni í leiktæki í almenningsgarðinum, rassblautar af röku timbrinu, sötrandi kaffi sem við keyptum í Donut Hole sjoppunni. Við höfðum ekkert fyrir stafni og höfðum bara vandrað um og spjallað um allt og ekkert. Við höfðum vandrað inn á leiksvæðið og vorum að hvíla fæturna.
+Mánuði eftir að mamma dó höfðum við Emma hangið saman í turni í leiktæki í almenningsgarðinum, rassblautar af röku timbrinu, sötrandi kaffi sem við keyptum í Donut Hole sjoppunni. Við höfðum ekkert fyrir stafni og höfðum bara vandrað um og spjallað um allt og ekkert. Við höfðum labbað inn á leiksvæðið og ákváðum að hvíla fæturna.
 
 "Veistu, ég dáist að þér," hafði hún allt í einu sagt.
 
 "Vegna hvers?" hafði ég svarað, alveg hlessa yfir þeirri staðreynd að einhver æðisleg og frábær og vinsæl eins og hún sæi eitthvað aðdáunarvert í mér.
 
-"Þú ert svo seig. Eftir að mamma þí dó varstu gjörsamlega í molum en mánuði seinna ertu búin að ná að taka þig svona saman. Ég gæti það ekki."
+"Þú ert svo seig. Eftir að mamma þín dó varstu gjörsamlega í molum en bara mánuði seinna ertu búin að ná að taka þig svona saman. Ég gæti það ekki."
 
-Ég mundi að ég hafði viðurkennt fyrir henni, "En ég er ekki seig. Ég næ að halda mér góðri yfir daginn, en ef ég á að segja eins og er þá hef ég grátið mig í svefn síðastliðna viku."
+Ég mundi að ég hafði viðurkennt fyrir henni, "En ég er ekki seig. Ég næ að halda mér góðri yfir daginn, en ef ég á að segja eins og er þá hef ég grátið mig í svefn alla síðastliðna viku."
 
-Þessi orð höfðu verið nóg til að opna flóðgáttirnar, þá og þarna. Hún hafði veitt mér öxl að gráta á, og kaffið hafði verið orðið kalt áður en ég hafði lokið mér af.
+Þessi orð höfðu verið nóg til að opna flóðgáttirnar, þá og þarna. Hún hafði veitt mér öxl að gráta á, og kaffið var orðið kalt áður en ég hafði lokið mér af.
 
-Núna, á meðan ég horfði gapandi á Emmu, orðlaus, víkkaði bros hennar. Hún mundi það sem ég hafði sagt. Hún vissi hvaða minningar þetta mundi vekja. Á einhverjum tímapunkti hafði hún munað eftir þessum orðum mínum og hún hafði ákveðið að vopnvæða þau. Hún hafði beðið þolinmóð eftir rétta tímanum til að beita þeim gegn mér.
+Núna, á meðan ég horfði gapandi á Emmu, orðlaus, víkkaði bros hennar. Hún mundi það sem ég hafði sagt. Hún vissi hvaða minningar orðin myndu vekja. Á einhverjum tímapunkti hafði hún munað eftir þessum orðum mínum og hún hafði ákveðið að vopnvæða þau. Hún hafði beðið þolinmóð eftir rétta tímanum til að beita þeim gegn mér.
 
-Og fjandinn hafi það, þau virkuðu. Ég reyndi að halda aftur af þeim en ég fann tárin brjótast fram og að endingu runnu þau niður kinnarnar á mér. Krafturinn minn dundi við brúnir meðvitundar minnar, smelluhljóðin voru orðin að suði sem þrýsti á mig. Ég bældi það niður eins vel og ég gat.
+Og fjandinn hafi það, orðin virkuðu. Ég reyndi að halda aftur af mér en ég fann tárin brjótast fram og að endingu runnu þau niður kinnarnar á mér. Krafturinn minn dundi við brúnir meðvitundar minnar, smelluhljóðin voru orðin að suði sem þrýsti á mig. Ég bældi það niður eins vel og ég gat.
 
 "Það er rétt! Hún er farin að grenja!" sagði Madison hlæjandi.
 
-Reið sjálfri mér þerraði ég tárin af kinnunum en fleiri flæddu fram og tóku sess þeirra sem ég þurrkaði í burtu.
+Reið sjálfri mér þerraði ég tárin af kinnunum en fleiri flæddu fram og tóku sess þeirra sem ég hafði þurrkað í burtu.
 
 "Það er eins og þú sért með ofurkrafta, Emma!" sagði ein stelpan flissandi.
 
