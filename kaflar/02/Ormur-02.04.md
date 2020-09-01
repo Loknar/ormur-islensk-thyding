@@ -2,7 +2,7 @@
 
 "Engum líkar við hana. Enginn vill umgangast hana," sagði Julia.
 
-"Þvílíkur slugsi. Hún skilaði ekki einu sinni stóra miðannarverkefninu síðasta föstudag," bætti Sophia inn í.
+"Þvílíkur slugsi. Hún skilaði ekki einu sinni stóra miðannaverkefninu síðasta föstudag," bætti Sophia inn í.
 
 "Ef hún er ekki einu sinni að reyna að sinna náminu, hvers vegna er hún yfir höfuð að mæta í skólann?"
 
@@ -92,7 +92,7 @@ Reið sjálfri mér þerraði ég tárin af kinnunum en fleiri flæddu fram og t
 
 Sophia hallaði sér að veggnum, með annan fótinn hvílandi ofan á bakpokanum mínum. Löngun mín til að koma mér úr þessum aðstæðum var yfirsterkari lönguninni að fá bakpokann minn aftur. Ég gaf bakpokann upp á bátinn og braut mér leið í gegnum fyrirsátina, ég rak öxlina svo fast í einn aðstandanda að hann hrasaði um koll. Ég hljóp niður stigaganginn og út um dyrnar á jarðhæðinni.
 
-Ég flúði. Ég leit ekki við, en mér fannst líklegt að þær væru horfandi á eftir mér í gegnum gluggann á ganginum á annarri hæð. Það skipti svosem ekki máli. Það að ég var nýbúin að lofa að borga þrjátíuogfimm dali fyrir nýtt eintak af kennslubókinni World Issues í stað þeirrar sem hafði verið eyðilögð með ávaxtasafa skipti ekki heldur máli. Jafnvel þó það væru í raun allur lausapeningurinn minn eftir að ég hafði keypt hluti í búninginn minn. Miðannarverkefnið mitt fyrir List og sköpun var í töskunni líka, ég hafði náð að púsla því aftur saman um helgina. Ég vissi að ég fengi ekkert af þessu til baka í heilu lagi, ef ég fengi eitthvað af því yfir höfuð.
+Ég flúði. Ég leit ekki við, en mér fannst líklegt að þær væru horfandi á eftir mér í gegnum gluggann á ganginum á annarri hæð. Það skipti svosem ekki máli. Það að ég var nýbúin að lofa að borga þrjátíuogfimm dali fyrir nýtt eintak af kennslubókinni World Issues í stað þeirrar sem hafði verið eyðilögð með ávaxtasafa skipti ekki heldur máli. Jafnvel þó það væru í raun allur lausapeningurinn minn eftir að ég hafði keypt hluti í búninginn minn. Miðannaverkefnið mitt fyrir List og sköpun var í töskunni líka, ég hafði náð að púsla því aftur saman um helgina. Ég vissi að ég fengi ekkert af þessu til baka í heilu lagi, ef ég fengi eitthvað af því yfir höfuð.
 
 Nei, það eina sem skipti mig máli þá og þarna var að komast í burtu. Ég ætlaði ekki að brjóta loforðið sem ég hafði gefið mér. Ég ætlaði ekki að nota kraftana mína á þær. Það var línan sem ég ætlaði ekki fara yfir. Jafnvel þó það væri eitthvað saklaust, eins og að lauma lús í hárið á þeim, ég vissi að ef ég léti freistast væri engin leið fyrir mig að hætta þar. Ég vissi að ég mundi enda á að gefa þeim feitar vísbendingar um að ég hefði öðlast krafta, þær mundu fatta undir eins hver ég væri ef þær sæju mig við hetjustörf. Jafnvel hugmyndin að einfaldlega sýna þeim krafta mína til þess eins að sjá svipinn á þeim þegar þær uppgötvuðu að stelpan sem þær höfðu verið að kvelja væri réttsýn ofurhetja heillaði mig. Það var eitthvað sem mig hafði endurtekið dagdreymt um að gera en ég vissi að langtímaafleiðingarnar af slíku yrðu sérstaklega slæmar fyrir mig.
 
