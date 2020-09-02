@@ -50,7 +50,7 @@ Titill færslunnar var einfaldlega 'Padda'.
 
 Ég opnaði hana og beið óþreyjufull á meðan gamla tölvan og úrelta skólanets modem tengingin börðust við að hlaða upp síðunni. Færslan var stutt.
 
-> Umræðuefni: Padda
+> Viðfangsefni: Padda
 >
 > Stend í þakkarskuld. Vil endurgjalda greiðann. Hittast?
 >
