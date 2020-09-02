@@ -102,4 +102,4 @@ Nei, það eina sem skipti mig máli þá og þarna var að komast í burtu. Ég
 
 ---
 
-[Fyrri hluti](Ormur-02.03.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.03.md) - [Næsti hluti](Ormur-02.05.md)
