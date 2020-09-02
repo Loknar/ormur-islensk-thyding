@@ -2,17 +2,17 @@
 
 Ef litið var á Brockton Bay sem bútasaum af flottheitum annarsvegar og krummaskuðum hinsvegar, efri stétt annarsvegar og lægri stétt hinsvegar með enga millistétt, þá var miðbærinn eitt af fallegu svæðunum. Götur og gangstéttir þar voru vel breiðar sem þýddi að þrátt fyrir skýjakljúf á annarri hverri lóð þá sást blár himininn vel á götum niðri.
 
-Eftir að ég hafði flúið af skólalóðinni hafði ég litla hugmynd um hvað ég ætti að gera. Pabbi vann á sveigjanlegum tíma sem þýddi að ég gat ekki einfaldlega farið heim án þess að eiga á hættu á að hitta pabba heima og þurfa að útskýra fyrir honum hvað ég væri að gera heima á skóladegi. Mig langaði ekki að hanga á almennu svæði skólans eða í nágrenni hans, svo ég hafði ákveðið að fá mér hálftíma göngutúr um miðbæinn eða um Boardwalk svæðið. Á morgunskokkinu mínu og stöku næturskokki hafði ég séð nóg af Boardwalk svæðinu, svo ég ákvað að rölta um miðbæinn.
+Eftir að ég hafði flúið af skólalóðinni hafði ég litla hugmynd um hvað ég ætti að gera. Pabbi vann á sveigjanlegum tíma sem þýddi að ég gat ekki farið heim án þess að eiga á hættu á að hitta pabba heima og þurfa að útskýra fyrir honum hvað ég væri að gera heima þegar ég ætti að vera í skólanum. Mig langaði ekki að hanga á almennu svæði skólans eða í nágrenni hans, svo ég hafði ákveðið að fá mér hálftíma göngutúr um miðbæinn eða um Boardwalk svæðið. Á morgunskokkinu mínu og stöku næturrölti hafði ég séð nóg af Boardwalk svæðinu, svo ég ákvað að rölta um miðbæinn.
 
 Mig langaði ekki að dvelja á vandamálum mínum með skólann eða Emmu, svo ég beindi athygli minni að skilaboðunum frá Tattletale. Hún vildi hittast, hugsanlega til að endurgjalda mér þann greiða sem henni fannst hún skulda mér. Ég velti fyrir mér möguleikanum að um gildru væri að ræða, en átti erfitt með að ímynda mér vinkil sem gerði það líklegt. Hún hafði bara enga ástæðu til að eiga eitthvað sökótt við mig. Í versta falli gat ég ímyndað mér að skilaboðin væru ekki frá Tattletale, en mér fannst það ekki heldur líklegt. Það sem kom fram í skilaboðunum virtist ríma algjörlega við það sem hún hafði sagt og gert nóttina áður. Ég mundi fara varlega engu að síður.
 
 Þetta var ráðgáta. Þessir krakkar voru að stórum hluta alveg óþekkt ofurillmenni. Miðað við það sem ég hafði fundið um Grue og Hellhound höfðu þau tvö áður verið lítilsverð illmenni á B-lista sem virtust rétt svo ná að skrimta. Nú voru þau partur af teymi sem hafði tök á að vinna af hendi vel heppnuð rán í stærri kantinum samhliða því að forðast radarinn hjá meira að segja ofurhetjum eins og Armsmaster. Þau tvö virtust hafa alveg sitthvor aðferðafræðina og stíl og ef ég mundi rétt höfðu bæði Grue og Hellhound upphaflega starfað í öðrum borgum áður en þau tvö hófu að starfa saman og setjast að í Brockton Bay. Sem vakti hjá mér spurninguna: hver eða hvað hafði dregið þessa mjög svo ólíku fjórmenninga saman?
 
-Það var möguleiki að annaðvort Tattletale eða Regent hefðu verið sameiningarþátturinn, en ég átti einhvern veginn erfitt með að ímynda mér það, miðað við hvernig ég hafði upplifað dýnamíkina hjá þeim sem hóp þessa stuttu stund nóttina áður. Grue hafði atast í Regent frekar en að koma fram við hann eins og leiðtoga og því meira sem ég hugsaði um það því erfiðara var það fyrir mig að ímynda mér að Tattletale hefði leitt saman þennan hóp fólks með ofurkrafta. Og nú þegar ég hugsaði um það, hafði Grue ekki minnst á að þau hefðu rifist um það megnið af kvöldinu hvernig þau ætluðu að tækla atlögu Lung gegn þeim? Í raun hljómaði það eins og ekkert þeirra hefði tekið sér leiðtogahlutverk sem vert væri að tala um.
+Það var möguleiki að annaðvort Tattletale eða Regent hefðu verið sameiningarþátturinn, en ég átti einhvern veginn erfitt með að ímynda mér það, miðað við hvernig ég hafði upplifað dýnamíkina hjá þeim sem hóp þessa stuttu stund nóttina áður. Grue hafði atast í Regent frekar en að koma fram við hann eins og leiðtoga og því meira sem ég hugsaði um það því erfiðara var það fyrir mig að ímynda mér að Tattletale hefði leitt saman þennan hóp fólks með ofurkrafta. Og nú þegar ég hugsaði um það, hafði Grue ekki nefnt að þau hefðu rifist um það megnið af kvöldinu hvernig þau ætluðu að tækla atlögu Lung gegn þeim? Í raun hljómaði eins og ekkert þeirra færi með neitt leiðtogahlutverk sem vert var að tala um.
 
 Það var ekki erfitt að hafa samúð með Armsmaster. Öll atburðarásin var furðuleg, allt er varðaði þennan hóp var furðulegt, og versnaði bara þegar tekið var með í reikninginn að svo gott sem ekkert var vitað um Tattletale og Regent. Upplýsingar voru greinilega mjög mikilvægur þáttur þegar kom að því að díla við skikkjur.
 
-Götur miðbæjarins iðuðu af lífi, væntanlega mestmegnis fólki í hádegishléi. Kaupsýslumenn og kaupsýslukonur á leið á veitinga- og skyndibitastaði. Maginn í mér gaulaði þegar ég gekk framhjá röð fólks sem beið eftir afgreiðslu hjá götupulsusala. Ég athugaði í vasana mína og áttaði mig á að ég var ekki einu sinni með nóg klink fyrir eina pulsu. Hádegismaturinn minn hafði verið í bakpokanum mínum.
+Götur miðbæjarins iðuðu af lífi, mestmegnis fólki í hádegishléi, kaupsýslumenn og kaupsýslukonur á leið á veitinga- og skyndibitastaði. Maginn í mér gaulaði þegar ég gekk framhjá röð fólks sem beið eftir afgreiðslu hjá pulsugötusala. Ég athugaði í vasana mína og áttaði mig á að ég var ekki einu sinni með nóg klink fyrir eina pulsu. Hádegismaturinn minn hafði verið í bakpokanum mínum.
 
 Sú hugsun stoppaði mig og skapið versnaði á meðan hugurinn reikaði aftur af því sem hafði gerst í skólanum. En þegar ég hugsaði aftur til illmennahópsins og skilaboðin frá Tattletale læddist að mér sú skemmtilega hugmynd að ég gæti beðið þau um að endurgjalda mér greiðann með því að kaupa handa mér hádegismat. Mér var ekki full alvara á bak við hugmyndina, en fáránleg hugmyndin og hvernig ég sá það fyrir mér - ég að fá mér hamborgara ásamt hópi af óþekktum illmennum - það setti bjánalegt bros á fésið á mér. Ég var nokkuð viss um að ég leit út eins og algj0r vitleysingur fyrir hvern þann sem sá mig og smettið á mér þarna á miðri gangbrautinni.
 
@@ -50,11 +50,11 @@ Svarið barst einungis tveimur til þremur mínútum síðar. Það var fannst m
 >
 > Ta ta
 
-Hjartað barðist í brjóstinu á mér. Hún vissi hvar ég var og kaus að gera mér fyllilega grein fyrir því. Af hverju? Og það sem mikilvægara var, hvernig? Hafði ég í skeytingarleysi opnað netsamskipti við úrræðagóðan tölvuhakkara? Ég leit á sjálfa mig sem nokkuð vel að mér í tölvumálum, mamma hafði séð til þess að ég ætti eina slíka frá því áður en ég gat lesið og skrifað, en ég væri að ljúga ef ég segðist geta sagt til um hvort einhver væri að hakka mig eða ekki og vissi lítið sem ekkert um hvernig maður gat varist slíku.
+Hjartað barðist í brjóstinu á mér. Hún vissi hvar ég var og kaus að gera mér fyllilega grein fyrir því. Af hverju? Og það sem mikilvægara var, hvernig? Hafði ég í skeytingarleysi opnað netsamskipti við úrræðagóðan tölvuhakkara? Ég leit á sjálfa mig sem nokkuð vel að mér í tölvumálum, mamma hafði séð til þess að ég ætti eina slíka frá því áður en ég gat lesið og skrifað, en ég væri að ljúga ef ég segðist geta sagt til um hvort einhver væri að hakka mig og vissi lítið sem ekkert um hvernig hægt var að verjast slíku.
 
 Ég hefði túlkað það að hún minntist á staðsetningu mína sem dulbúna hótun ef það hefði ekki stangast á við allt annað við skilaboðin hennar til mín. Og að auki - Tattletale talaði um að hittast óformlega klædd. Ég skildi það þannig að þau yrðu ekki klædd í búningana sína. Ég átti bágt með að skilja hvers vegna, og á sama tíma var erfitt fyrir mig að ímynda mér að hún væri að hafa í hótunum einungis málsgrein eftir að hafa stungið upp á að hittast á þennan hátt sem gerði hana sjálfa gjörsamlega berskjaldaða.
 
-Tattletale hafði ómeðvitað hækkað það sem var að veði varðandi áætlunina mína. Meginmarkmið mitt var að safna upplýsingum um þau og hérna bauðst mér tækifæri á að fá að sjá þau grímulaus. Í raun var þetta of gott til að vera satt og ég velti fyrir mér hverskonar öryggisráðstafanir þau gætu haft til að vernda sig.
+Tattletale hafði ómeðvitað hækkað það sem var í húfi varðandi áætlunina mína. Meginmarkmið mitt var að safna upplýsingum um þau og hérna bauðst mér tækifæri á að fá að sjá þau grímulaus. Í raun var þetta of gott til að vera satt og ég velti fyrir mér hverskonar öryggisráðstafanir þau gætu haft til að vernda sig.
 
 Ég bara hafði ekki minnstu hugmynd hvað ég var að koma mér í.
 
@@ -66,7 +66,7 @@ En aftur að núverandi stöðu ... ef ég færi ekki, hvað mundi gerast? Þess
 
 "Afsakaðu mig?"
 
-Mér dauðbrá og leit snögglega upp. Miðaldra kona í rauðum jakka stóð beint fyrir aftan mig. Þegar augu okkar mættust spurði hún, "Ertu búin?" Hún beindi athygli sinni að tölvunni, þar sem biðmyndin var enn í gangi.
+Mér dauðbrá og leit snögglega upp. Miðaldra kona klædd í rauðan jakka stóð beint fyrir aftan mig. Þegar augu okkar mættust spurði hún, "Ertu búin?" Hún beindi athygli sinni að tölvunni, þar sem biðmyndin var enn í gangi.
 
 Dauðfegin yfir því að hún hefði ekki verið, jafn fáránlegt og það hefði verið, sjálf Tattletale, brosti ég til hennar og sagði, "Gefðu mér hálfa mínútu."
 
@@ -76,4 +76,4 @@ Dauðfegin yfir því að hún hefði ekki verið, jafn fáránlegt og það hef
 
 ---
 
-[Fyrri hluti](Ormur-02.04.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.04.md) - [Næsti hluti](Ormur-02.06.md)
