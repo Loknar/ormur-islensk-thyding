@@ -46,19 +46,19 @@ Hann yppti öxlum, "Ekkert mál." Hann gaf á engan hátt til kynna að hafa mó
 
 "Ef ég má spurja," greip ég inn í, "hvert er markmið þessa fundar? Ég verð að segja að mér líður frekar óþægilega með að þið séuð búin að kynna ykkur svona fyrir mér grímulaust með alvöru nöfnunum ykkar, eða þykist vera að gera það allavega."
 
-"Fyrirgefðu," sagði Grue afsakandi, "það var mín hugmynd. Ég sá fyrir mér að við myndum taka fyrsta skrefið sem tákn um traust."
+"Fyrirgefðu," sagði Grue ... Brian afsakandi, "það var mín hugmynd. Ég sá fyrir mér að við myndum taka fyrsta skrefið sem tákn um traust."
 
-Ég pírði augun á bak við gulu linsurnar á grímunni minni, ég leit til skiptis á Lisu, Alec og Brian. Ég gat á engan hátt skilið hvað þau voru að fara með svipbrigðum sínum.
+Ég pírði augun á bak við gulu linsurnar á grímunni minni, ég leit til skiptis á Lisu, Alec og Brian. Ég gat á engan hátt skilið hvað þau voru að fara með þessum leik sínum.
 
-"Hvers vegna nákvæmlega þurfið þið traust mitt?" spurði ég.
+"Hvers vegna nákvæmlega viljið þið vinna traust mitt?" spurði ég.
 
 Brian opnaði munninn en lokaði honum síðan. Hann leit á Lisu sem tók upp nestisbox. Hún kom með það til mín.
 
 "Ég nefndi að við skulduðum þér. Þetta er handa þér, án nokkurra skilyrða."
 
-Án þess að taka við boxinu hallaði ég mér fram til að sjá það betur, "Alexandria. Hún var uppáhalds meðlimurinn minn í Protectorate samtökunum þegar ég var krakki. Er matarboxið safngripur?"
+Án þess að taka við boxinu hallaði ég mér fram til að sjá það betur, "Alexandria." sagði ég, "Hún var uppáhalds meðlimurinn minn í Protectorate samtökunum þegar ég var krakki. Er matarboxið safngripur?"
 
-"Opnaðu það," sagði Lisa við mig hvetjandi og ranghvolfdi í sér augunum.
+"Opnaðu það," sagði Lisa við mig með hvatningartón og ranghvolfdi í sér augunum.
 
 Ég tók við nestisboxinu. Útfrá þyngd og hreyfingu innihaldsins hafði ég strax sterkan grun um hvert innihaldið var. Ég losaði klemmurnar og opnaði boxið.
 
@@ -68,7 +68,7 @@ Lisa svaraði áður en ég náði að leggja saman magnið, "Tvöþúsund dalir
 
 Ég lokaði nestisboxinu og festi aftur klemmurnar. Ég var kjaftstopp, hafði enga hugmynd um hvað ég ætti að segja.
 
-"Þú hefur um tvennt að velja," útskýrði Lisa, "þú getur tekið við þessu sem gjöf. Þakkarvottur fyrir að hafa, viljandi eður ei, bjargað okkur frá yfirvofandi árás Lung síðustu nótt. Og kannski smá hvatning um að telja okkur á meðal vina þínna þegar þú ert á vappi búningsklædd fremjandi einhvern óskunda."
+"Þú hefur í raun um tvennt að velja," útskýrði Lisa, "þú getur tekið við þessu sem gjöf. Þakkarvottur fyrir að hafa, viljandi eður ei, bjargað okkur frá yfirvofandi árás Lung síðustu nótt. Og kannski smá hvatning um að telja okkur á meðal vina þínna þegar þú ert á vappi búningsklædd fremjandi einhvern óskunda."
 
 Brosið hennar breikkaði, eins og hún hefði skemmt sjálfri sér með því sem hún sagði. Kannski var það kaldhæðnin í því að illmenni talaði um "óskunda", eða hve kjánalega frasinn hljómaði. Hún hélt áfram, "Vegna deilna um yfirráðasvæði, mismunandi hugmyndafræði, almennrar valdabaráttu og sérhagsmuna þá eru sárafáir aðilar í illmennageiranum sem ekki ráðast á okkur um leið og þeim býðst tækifæri til."
 
@@ -88,63 +88,63 @@ Lisa flissaði, og Alec glotti samhliða því að hann fékk sér sopa úr kók
 
 "Það er þannig," svaraði Alec, "Við kusum um það og hún sagði nei."
 
-"Við hin kusum já," bætti Grue snögglega við og gaf Alec ásakandi svip, "Hún mun koma til. Hún kýs alltaf gegn því að bæta við meðlim í hópinn, af því að hana langar ekki til að skipta peningunum í fimm hluta."
+"Við hin kusum já," bætti Brian snögglega við og gaf Alec ásakandi svip, "Hún mun koma til. Hún kýs alltaf gegn því að bæta við meðlim í hópinn, af því að hana langar ekki til að skipta peningunum í fimm hluta."
 
-"Svo þið hafið reynt að ráða aðra í lið með ykkur," sagði ég.
+"Svo þið hafið reynt að ráða aðra í lið með ykkur?" spurði ég.
 
-"Uh, já," sagði Brian vandræðalega, hann nuddaði bakhlutann á hálsinum á sér, "það gekk ekki vel. Við reyndum með Spitfire og hún varð hrædd og flúði áður en við náðum einu sinni að nefna atvinnutilboðið. Okkur að kenna fyrir að taka Rachel með okkur á þann fund."
+"Uh, já," svaraði Brian vandræðalega, hann nuddaði bakhlutann á hálsinum á sér, "það gekk ekki vel. Við reyndum með Spitfire og hún varð hrædd og flúði áður en við náðum einu sinni að nefna atvinnutilboðið. Okkur að kenna fyrir að taka Rachel með okkur á þann fund."
 
 "Og í kjölfarið var Spitfire ráðin af öðrum aðila," bætti Alec við.
 
 "Já," sagði Brian og yppti öxlum, "henni var nappað af Faultline áður en við náðum að ræða við hana aftur. Við buðum líka Circus stöðu hjá okkur, en hún gerði okkur fyllilega ljóst að hún starfaði ein."
 
-"Kenndi mér nokkur ný blótsorð samhliða því," sagði Alec.
+"Kenndi mér nokkur ný blótsyrði samhliða því," sagði Alec.
 
-"Hún notaði nokkuð háfleyg orð til að lýsa því hvernig hún kysi að vinna sóló," viðurkenndi Brian.
+"Hún notaði nokkuð háfleyg orð til að lýsa því hvernig hún kysi að vinna ein," viðurkenndi Brian.
 
 "Þannig að þið eruð að stíga extra skref með grímuleysið til að vinna traust, og upphafsgreiðslu, til að fá mig til að ganga til liðs við ykkur," sagði ég samhliða því að ég púslaði hlutunum saman í huganum.
 
-"Það er meira og minna þannig já," sagði Brian, "Staðan er í raun þessi, sérstaklega núna með Lung úr leik og ABB gengið í veikri stöðu, það er yfirvofandi valdabarátta um bæði svæði og stöður á milli hinna ýmsu gengja og teyma. Teymið okkar, teymið sem Faultline er með, það sem eftir er af ABB genginu, Empire Eighty-Eight, hin ýmsu illmenni sem starfa ein, og einnig einhver gengi og teymi úr öðrum borgum sem telja sig geta komið inn og tekið yfir einhvern hluta borgarinnar á meðan ástandið er eins og það er. Ef hitnar í kolunum viljum við vera klár í slaginn. Við höfum ekki klúðrað einu einasta verkefni hingað til, en eins og við þrjú sjáum það er aðeins tímaspursmál hvenær við lendum í bardaga sem við ráðum ekki við, og með Bitch sem eina meðlim hópsins sem getur almennilega bitið frá sér."
+"Það er meira og minna þannig já," sagði Brian, "Staðan er í raun þessi, sérstaklega núna með Lung úr leik og ABB gengið í veikri stöðu, það er yfirvofandi valdabarátta um bæði svæði og stöður á milli hinna ýmsu gengja og teyma. Teymið okkar, teymið sem Faultline er með, það sem eftir er af ABB genginu, Empire Eighty-Eight, hinir ýmsu einyrkjar, og einnig einhver gengi og teymi úr öðrum borgum sem telja sig geta komið inn og tekið yfir einhvern hluta borgarinnar á meðan ástandið er eins og það er. Ef hitnar í kolunum viljum við vera klár í slaginn. Við höfum ekki klúðrað einu einasta verkefni hingað til, en eins og við þrjú sjáum það er aðeins tímaspursmál hvenær við lendum í bardaga sem við ráðum ekki við, og með Bitch sem eina meðlim hópsins sem getur almennilega bitið frá sér."
 
 "Ég skil ekki, hvers vegna viljið þið mig," sagði ég, "ég stjórna pöddum. Það er ekki að fara að virka á móti Alexandriu, Glory Girl eða Aegis."
 
 "Þú stútaðir Lung," sagði Lisa og yppti öxlum, "það dugar mér."
 
-"Um, í rauninni ekki," svaraði ég, "ef það fór fram hjá ykkur, þá voruð það þið sem stöðvuðuð hann frá því að taka mig af lífi hérna í nótt. Þið hljótið að hafa tekið eftir því."
+"Um, í rauninni ekki," svaraði ég, "ef það fór fram hjá ykkur, þá voruð það þið sem stöðvuðuð hann frá því að taka mig af lífi í nótt. Þið hljótið að hafa áttað ykkur á því."
 
 "Elskan," sagði Lisa, "Heilu teymin hafa tekið höndum saman gegn Lung og samt verið gjörsamlega pakkað saman. Það sem þú áorkaðir síðustu nótt var meiriháttar. Það að Lung liggur þungt haldinn á sjúkrahúsi sökum þín er bara til að toppa það."
 
 Svar mitt stoppaði áður en ég náði að koma út einu orði. Það eina sem kom út um munninn minn var bjánalegt "Hunh?"
 
-"Já," sagði Lisa og lyfti annarri augabrúninni, "Þú veist hvaða pöddur þú lést bíta hann, er það ekki? Svarta Ekkjan, Brúnar Fiðlubaka köngulær, Brúnskottu Mölflugur, Mildei Gulsakka köngulær, Eldmaurar-"
+"Já," sagði Lisa og lyfti annarri augabrúninni, "Þú veist hvaða pöddur þú lést bíta hann, er það ekki? Svarta Ekkjan, Brúnar Fiðlubaks köngulær, Brúnskottu Mölflugur, Mildei Gulsakka köngulær, Eldmaurar-"
 
 "Jájá," sagði ég ofan í hana, "Ég þekki ekki öll opinberu nöfnin, en ég veit nákvæmlega hvaða pöddur bitu hann og hve skaðlegt eitrið þeira er."
 
-"Af hverju ertu þá hissa? Nokkrar af þessum pöddum eru nógu andskoti hættulegar þó þær bitu mann ekki nema einu sinni, en þú varst með heilan her af þeim og lést þær bíta hann oft. Og til að bæta ofan á það þá var læknir fenginn til að meta ástandið á honum þegar hann var færður í fangaklefa, og fjárans lækninum yfirsást alvarleiki bitanna og sagði eitthvað eins og 'Oh jæja, þetta líta út eins og skordýrabit og býflugnastungur, en þær sem eru mjög eitraðar bíta aldrei oftar en einu sinni. Kíkjum betur á hann eftir nokkra klukkutíma.', alveg óhæfur greyið."
+"Af hverju ertu þá hissa? Nokkrar af þessum pöddum eru nógu andskoti hættulegar þó þær bíti mann ekki nema einu sinni, en þú varst með heilan her af þeim og lést þær bíta hann oft. Og til að bæta ofan á það þá var læknir fenginn til að meta ástandið á honum þegar hann var færður í fangaklefa, og heimska lækninum yfirsást alvarleiki bitanna og sagði eitthvað eins og 'Oh jæja, þetta líta út eins og skordýrabit og býflugnastungur, en þær sem eru mjög eitraðar bíta aldrei oftar en einu sinni. Kíkjum betur á hann eftir nokkra klukkutíma.', alveg óhæfur greyið."
 
 Ég sá hvert sagan var að fara. Ég lagði hendurnar yfir munninn og hvíslaði hálfskelfd, "Ó guð minn góður."
 
-Tattletale brast í hlátur, "Ég trúi ekki að þú hafir ekki vitað af því."
+Tattletale brast í hlátur, "Ég trúi ekki að þú hafir ekki vitað af þessu."
 
 "En lækningarmátturinn hans!" mótmælti ég, "Eiturefni eiga varla að hafa nein teljandi áhrif á fólk með lækningarmátt eins og hann hefur."
 
-"Þau virka greinilega eitthvað, hugsa ég, eða mögulega hætti lækningarmátturinn hans að virka einhverstaðar á leiðinni" sagði Lisa við mig, "Þegar þeir skoðuðu hann aftur var grey stóri strákurinn rétt byrjaður að þjást af meiriháttar vefjadrepi. Hjartað hans hætti meira að segja að slá nokkrum sinnum. Þú væntanlega manst hvar þú lést pöddurnar bíta hann?"
+"Þau virka greinilega eitthvað, hugsa ég, eða mögulega hætti lækningarmátturinn hans að virka einhverstaðar á leiðinni" sagði Lisa við mig, "Þegar þeir skoðuðu hann aftur var grey stóri strákurinn rétt byrjaður að þjást af skæðu vefjadrepi. Hjartað hans hætti meira að segja að slá nokkrum sinnum. Þú væntanlega manst hvar þú lést pöddurnar bíta hann?"
 
-Ég lokaði augunum. Þetta mundi sturta orðstír mínum sem ofurhetju ofan í klóakið. Ein tegund köngulónna sem ég hafði notað var brúnn fiðlubakur. Bit hennar var talið eitt hættulegasta bit köngulóa í Bandaríkjunum, hættulegra en bit svörtu ekkjunnar. Eitt bit gat valdið því að góður klumpur af kjöti í kringum það sortnaði og rotnaði í burtu. Ég hafði látið margar slíkar bíta Lung á líffræðilega viðkvæmari svæðin hans.
+Ég lokaði augunum. Þetta mundi sturta orðstír mínum sem ofurhetju ofan í klóakið. Ein tegund köngulónna sem ég hafði notað var brúnn fiðlubakur. Bit hennar var talið eitt hættulegasta bit köngulóa í Bandaríkjunum, hættulegra en bit svörtu ekkjunnar. Eitt bit gat valdið því að góður klumpur af kjöti í kringum bitsvæðið sortnaði og rotnaði í burtu. Ég hafði látið margar slíkar bíta Lung á líffræðilega viðkvæmari svæðin hans.
 
-"Við skulum bara orða það þannig að jafnvel með hæfileikann að læknast margfalt hraðar en venjuleg manneskja þá er Lung að fara að þurfa að sitja þegar hann mígur í postulínið."
+"Við skulum bara orða það þannig að jafnvel með hæfileikann að læknast margfalt hraðar en venjuleg manneskja þá er Lung að fara að þurfa að setjast niður þegar hann mígur í postulínið."
 
-"Allt í lagi, þetta er nóg," sagði Brian við Lísu áður en hún náði að halda áfram, "Lung mun jafna sig, er það ekki?"
+"Allt í lagi, þetta er nóg," sagði Brian við Lísu áður en hún náði að halda áfram, "Lung mun jafna sig, ekki satt?"
 
-Miðað við tóninn í röddinni og svipinn sem hann gaf Lisu taldi ég allt eins líklegt að hún mundi svara játandi óháð sannleikanum. Hún yppti öxlum og sagði við mig, "Hann er nú þegar að jafna sig. Hægt og rólega, hann ætti að vera orðinn góður eftir svona hálft ár eða ár kannski."
+Miðað við tóninn í röddinni og svipinn sem hann gaf Lisu taldi ég allt eins líklegt að hún mundi svara játandi óháð sannleikanum. Hún yppti öxlum og sagði við mig, "Hann er nú þegar að jafna sig. Hægt og rólega, hann ætti að vera orðinn góður eftir svona hálft upp í eitt ár kannski."
 
-"Biddu fyrir þér að hann sleppi ekki," sagði Alec, lágvær, hann hljómaði smá sleginn, "af því að ef einhver léti kallinn minn detta af mér mundi ég gjalda í blóði."
+"Biddu fyrir þér að hann sleppi ekki," sagði Alec, lágvær, hann hljómaði smá sleginn, "af því að ef einhver léti kallinn minn detta af mér væri ég í morðhug."
 
 Brian kleip í nefið á Alec, "Kærar þakkir fyrir þessa innsýn, Alec. Eins vel og þið tvö eruð að standa ykkur þá er ekki langt í að mögulegur nýliði okkar leggi á flótta og fái kvíðakast áður en hún nær að velta fyrir sér möguleikanum á að ganga í lið með okkur Undersiders."
 
 "Hvernig veistu þetta allt saman?" spurði ég, um leið og spurningin kviknaði í kollinum á mér. Þegar Brian sneri sér við með svip sem gaf til kynna að hann teldi sig hafa móðgað mig árétti ég, "Tattletale eða Lisa eða hvað ég á að kalla þig. Hvernig veistu þetta allt um Lung ... hvernig vissirðu að ég var á almenningsbókasafninu? Hvernig vissirðu að það var skikkja á leiðinni til okkar í gærnótt?"
 
-"Almenningsbókasafninu?" endurtók Brian og leit ásakandi á Lisu.
+"Almenningsbókasafninu?" spurði Brian og leit ásakandi á Lisu.
 
 Lisa hunsaði spurninguna frá Brian og blikkaði mig, "Stelpur verða að fá að hafa einhver leyndarmál."
 
@@ -154,11 +154,11 @@ Lisa hunsaði spurninguna frá Brian og blikkaði mig, "Stelpur verða að fá a
 
 "Þú segir það," muldraði Brian, "En förum ekki nánar út í það."
 
-Lisa brosti til mín, "Ef þú vilt fá að vita restina er ég hrædd um að þær upplýsingar sé aðeins í boði fyrir fullgilda meðlimi Undersiders. Það sem ég get sagt þér er að við erum góður hópur. Afrekaskráin okkar er óflekkuð, og við erum að þessu til að hafa gaman og til að græða. Ekkert baktjaldamakk. Engin raunveruleg ábyrgð."
+Lisa brosti til mín, "Ef þú vilt fá að vita restina er ég hrædd um að þær upplýsingar sé aðeins í boði fyrir fullgilda meðlimi Undersiders. Það sem ég get sagt þér er að við erum góður hópur. Afrekaskráin okkar er óflekkuð, og við erum að þessu til að hafa gaman og til að græða. Ekkert meiriháttar baktjaldamakk. Engin alvöru ábyrgð."
 
 Ég kreysti saman varirnar á bak við grímuna mína. Þó ég væri búin að öðlast töluvert magn upplýsinga þá fannst mér ég bara vera komin með fleiri spurningar. Hver var þessi stjóri sem þau töluðu um? Var hann eða hún að koma á laggirnar fleiri teymum en bara þeim hér í Brockton Bay eða annarstaðar? Hvað var það sem gerði þau svona svakalega áhrifarík í öllum verkefnum sem þau tóku sér fyrir hendur og var eitthvað sem ég gat lært af þeim eða á annan hátt nýtt mér?
 
-Það var ekki eins og ég væri að fara skrifa undir einhvern samning með blóði eða álíka. Ég hafði svo mikið að vinna.
+Það var ekki eins og ég væri að fara skrifa undir einhvern samning með blóði eða selja sál mína eða álíka. Ég hafði svo mikið að vinna.
 
 "Allt í lagi, ég er til í þetta," sagði ég við þau.
 
