@@ -92,7 +92,7 @@ Herra Gladly útnefndi annan hóp sem sigurvegara, einkum vegna þess yfirgengil
 
 "Já," sagði ég, enn horfandi niður. Það var erfitt að útskýra hvernig mér leið með þetta samtal. Ég var þakklát, held ég, að einhver hefði gefið þessum hlutum gaum, en á sama tíma var ég örg að þessi einhver skyldi vera herra Gladly. Mér leið að auki skömmustulega, eins og ég hefði labbað á hurð og einhver væri að reyna of mikið að ganga úr skugga um að ég væri ómeidd.
 
-"Ég spurði þig eftir atvikið með límið. Ég spyr þig aftur nú. Mundir þú vilja koma með mér upp á skrifstofu með mér, og við ræðum þessi mál við skólastjórann og aðstoðarskólastjórann?"
+"Ég spurði þig eftir atvikið með límið. Ég spyr þig aftur nú. Mundir þú vilja koma upp á skrifstofu með mér, og við ræðum þessi mál við skólastjórann og aðstoðarskólastjóra?"
 
 Eftir nokkra umhugsun leit ég upp og spurði hann: "Hvað myndi gerast?"
 

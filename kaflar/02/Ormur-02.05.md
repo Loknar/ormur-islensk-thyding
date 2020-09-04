@@ -2,7 +2,7 @@
 
 Ef litið var á Brockton Bay sem bútasaum af flottheitum annarsvegar og krummaskuðum hinsvegar, efri stétt annarsvegar og lægri stétt hinsvegar með enga millistétt, þá var miðbærinn eitt af fallegu svæðunum. Götur og gangstéttir þar voru vel breiðar sem þýddi að þrátt fyrir skýjakljúf á annarri hverri lóð þá sást blár himininn vel á götum niðri.
 
-Eftir að ég hafði flúið af skólalóðinni hafði ég litla hugmynd um hvað ég ætti að gera. Pabbi vann á sveigjanlegum tíma sem þýddi að ég gat ekki farið heim án þess að eiga á hættu á að hitta pabba heima og þurfa að útskýra fyrir honum hvað ég væri að gera heima þegar ég ætti að vera í skólanum. Mig langaði ekki að hanga á almennu svæði skólans eða í nágrenni hans, svo ég hafði ákveðið að fá mér hálftíma göngutúr um miðbæinn eða um Boardwalk svæðið. Á morgunskokkinu mínu og stöku næturrölti hafði ég séð nóg af Boardwalk svæðinu, svo ég ákvað að rölta um miðbæinn.
+Eftir að ég hafði flúið af skólalóðinni hafði ég litla hugmynd um hvað ég ætti að gera. Pabbi vann á sveigjanlegum tíma sem þýddi að ég gat ekki farið heim án þess að eiga hættu á að pabbi kæmi skyndilega heim og ég þyrfti að útskýra fyrir honum hvað ég væri að gera heima þegar ég ætti að vera í skólanum. Mig langaði ekki að hanga á almennu svæði skólans eða í nágrenni hans, svo ég hafði ákveðið að fá mér hálftíma göngutúr um miðbæinn eða um Boardwalk svæðið. Á morgunskokkinu mínu og stöku næturrölti hafði ég séð nóg af Boardwalk svæðinu, svo ég ákvað að rölta um miðbæinn.
 
 Mig langaði ekki að dvelja á vandamálum mínum með skólann eða Emmu, svo ég beindi athygli minni að skilaboðunum frá Tattletale. Hún vildi hittast, hugsanlega til að endurgjalda mér þann greiða sem henni fannst hún skulda mér. Ég velti fyrir mér möguleikanum að um gildru væri að ræða, en átti erfitt með að ímynda mér vinkil sem gerði það líklegt. Hún hafði bara enga ástæðu til að eiga eitthvað sökótt við mig. Í versta falli gat ég ímyndað mér að skilaboðin væru ekki frá Tattletale, en mér fannst það ekki heldur líklegt. Það sem kom fram í skilaboðunum virtist ríma algjörlega við það sem hún hafði sagt og gert nóttina áður. Ég mundi fara varlega engu að síður.
 
@@ -14,9 +14,9 @@ Mig langaði ekki að dvelja á vandamálum mínum með skólann eða Emmu, svo 
 
 Götur miðbæjarins iðuðu af lífi, mestmegnis fólki í hádegishléi, kaupsýslumenn og kaupsýslukonur á leið á veitinga- og skyndibitastaði. Maginn í mér gaulaði þegar ég gekk framhjá röð fólks sem beið eftir afgreiðslu hjá pulsugötusala. Ég athugaði í vasana mína og áttaði mig á að ég var ekki einu sinni með nóg klink fyrir eina pulsu. Hádegismaturinn minn hafði verið í bakpokanum mínum.
 
-Sú hugsun stoppaði mig og skapið versnaði á meðan hugurinn reikaði aftur af því sem hafði gerst í skólanum. En þegar ég hugsaði aftur til illmennahópsins og skilaboðin frá Tattletale læddist að mér sú skemmtilega hugmynd að ég gæti beðið þau um að endurgjalda mér greiðann með því að kaupa handa mér hádegismat. Mér var ekki full alvara á bak við hugmyndina, en fáránleg hugmyndin og hvernig ég sá það fyrir mér - ég að fá mér hamborgara ásamt hópi af óþekktum illmennum - það setti bjánalegt bros á fésið á mér. Ég var nokkuð viss um að ég leit út eins og algj0r vitleysingur fyrir hvern þann sem sá mig og smettið á mér þarna á miðri gangbrautinni.
+Sú hugsun stoppaði mig og skapið versnaði á meðan hugurinn reikaði aftur af því sem hafði gerst í skólanum. En þegar ég hugsaði aftur til illmennahópsins og skilaboðin frá Tattletale læddist að mér sú skemmtilega hugmynd að ég gæti beðið þau um að endurgjalda mér greiðann með því að kaupa handa mér hádegismat. Ég var ekki virða fyrir mér hugmyndina af fullri alvöru, hún var gjörsamlega fáránleg og ég sá það alveg fyrir mér - ég að fá mér hamborgara ásamt hópi af óþekktum illmennum - það setti bjánalegt bros á fésið á mér. Ég var nokkuð viss um að ég leit út eins og algjör lúði fyrir hvern þann sem sá mig og smettið á mér þarna á miðri gangbrautinni.
 
-Því meira sem ég hugsaði um það samt, að ég gat í alvöru talað að hugsað mér að taka tilboði Tattletale um að hittast. Því meir sem ég hugsaði um það, því skelfilegri varð hugmyndin og því meira virtist hún skynsamleg.
+Því meira sem ég hugsaði um það samt, ég gat í alvöru talað að hugsað mér að taka tilboði Tattletale um að hittast. Því meir sem ég hugsaði um það, því skelfilegri varð hugmyndin og því meira virtist hún skynsamleg.
 
 Hvað ef ég tæki tilboðinu? Ég gæti hitt þau, séð hvað þau hefðu fram að færa og samhliða því reynt að fiska upplýsingar um þau. Ef ég kæmist að einhverju sem vert væri að deila gæti ég snúið við og farið með upplýsingarnar til Armsmaster svo hann gæti notað þær gegn þeim. Bara útfrá því sem Armsmaster hafði sagt mér um þau og skortinn á upplýsingum um þau þá gæti þetta verið vænn fengur fyrir góðu gæjana.
 
@@ -32,7 +32,7 @@ Almenningsbókasafnið leit meira út eins og safn eða gallerí en nokkuð anna
 
 > Viðfangsefni: Re:Padda
 >
-> Padda hér. Langar að hittast, en vil sönnun á að þú sért Tt. Ég mun endurgjalda sönnun ef þörf er á.
+> Padda hér. Er til í að hittast, en vil sönnun á að þú sért Tt. Ég mun endurgjalda sönnun ef þörf er á.
 
 Ég hikaði þegar kom að því að ýta á senda og íhugaði skilaboðin. Að fá viðeigandi sönnun myndi útiloka vandamál eins og að skilaboðin væru gildra sett af segjum til dæmis Bakuda. Að láta sönnunarbyrðina í hendur Tattletale og láta eftir henni að ákveða hvort hún vildi fá sönnun á því að ég væri í raun og veru 'Padda' losaði mig frá hausverknum að finna út hvernig nákvæmlega best væri að sanna deili á sér. Ég endurlas skilaboðin tvisvar í viðbót og sendi þau svo.
 
