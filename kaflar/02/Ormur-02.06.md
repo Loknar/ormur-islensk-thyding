@@ -1,8 +1,8 @@
 ### Aðdróttun 2.6
 
-Ég ákvað að mæta klædd í búninginn minn. Mér var sama þó það léti mig líta út fyrir að vera óörugga eða jafnvel dónalega í augum þeirra, ég vildi frekar geta lifað af hnífsstungu en að spila með.
+Ég ákvað að mæta klædd í búninginn minn. Mér var sama þó það léti mig líta út fyrir að vera tortryggilega, óörugga eða jafnvel dónalega í augum þeirra, ég vildi frekar geta lifað af hnífsstungu en að spila með.
 
-Ég hafði gripið strætisvagn frá almenningsbókasafninu og heim, húsið var mannlaust, ég laumaðist inn og klæddi mig í búninginn undir fötin mín. Megnið af brynjunum voru aðskildir hlutir sem haldið var á sínum stað með ólum sem runnu ofan í slíður á búningnum. Ekki allar þó. Sumar brynjurnar voru samfastar búningnum, ég hafði fest tiltölulega þunnar stífar brynjuplötur sem lágu meðfram miðju brjóstkassans, bakinu, sköflungunum, úlnliðunum, mjöðmunum, öxlunum og herðum. Þegar ég festi stóru aðskildu brynjurnar héldu að auki greipar á föstu brynjunum við þær svo að þær gætu ekki auðveldlega losnað eða færst til. Ég virti mig fyrir mér í speglinum, ég gat ekki ímyndað mér að nokkur tæki eftir neinu nema ef ég stæði asnalega og viðkomandi væri horfa vandlega á mig. Ég klæddist vel víðum fötum yfir búninginn, - stærstu íþróttabuxunum sem ég átti og hettupeysu en þrátt fyrir það fannst mér ég vera óþægilega áberandi.
+Ég hafði gripið strætisvagn frá almenningsbókasafninu og heim, húsið var mannlaust, ég laumaðist inn og klæddi mig í búninginn undir fötin mín. Megnið af brynjunum voru aðskildir hlutir sem haldið var á sínum stað með ólum sem runnu ofan í slíður á búningnum. Ekki allar þó. Sumar brynjurnar voru samfastar búningnum, ég hafði fest tiltölulega þunnar stífar brynjuplötur sem lágu meðfram miðju brjóstkassans, bakinu, sköflungunum, úlnliðunum, mjöðmunum, öxlunum og herðum. Þegar ég festi stóru aðskildu brynjurnar héldu að auki greipar á föstu brynjunum við þær svo að þær gætu ekki auðveldlega losnað eða færst til. Ég virti mig fyrir mér í speglinum, ég gat ekki ímyndað mér að nokkur tæki eftir neinu nema ef ég stæði asnalega og viðkomandi væri horfa vandlega á mig. Ég klæddist vel víðum fötum yfir búninginn, - stærstu gallabuxunum sem ég átti og hettupeysu en þrátt fyrir það fannst mér ég vera óþægilega áberandi.
 
 Svona hafði ég klætt mig í gærkvöldi líka, fundið síðan mannlaust húsasund, skellt grímunni á mig í flýti, klætt mig úr fötunum sem ég var í yfir búninginn og skellt þeim í gamlan bakpoka sem pabbi átti. Seinustu nótt hafði ég falið bakpokann í húsasundinu, en í dag tók ég hann með mér. Ég yfirgaf húsasundið í hinum enda þess.
 
@@ -128,7 +128,7 @@ Tattletale brast í hlátur, "Ég trúi ekki að þú hafir ekki vitað af þess
 
 "En lækningarmátturinn hans!" mótmælti ég, "Eiturefni eiga varla að hafa nein teljandi áhrif á fólk með lækningarmátt eins og hann hefur."
 
-"Þau virka greinilega eitthvað, hugsa ég, eða mögulega hætti lækningarmátturinn hans að virka einhverstaðar á leiðinni" sagði Lisa við mig, "Þegar þeir skoðuðu hann aftur var grey stóri strákurinn rétt byrjaður að þjást af skæðu vefjadrepi. Hjartað hans hætti meira að segja að slá nokkrum sinnum. Þú væntanlega manst hvar þú lést pöddurnar bíta hann?"
+"Þau virka greinilega eitthvað, giska ég á, eða mögulega hætti lækningarmátturinn hans að virka einhverstaðar á leiðinni" sagði Lisa við mig, "Þegar þeir skoðuðu hann aftur var grey stóri strákurinn rétt byrjaður að þjást af skæðu vefjadrepi. Hjartað hans hætti meira að segja að slá nokkrum sinnum. Þú væntanlega manst hvar þú lést pöddurnar bíta hann?"
 
 Ég lokaði augunum. Þetta mundi sturta orðstír mínum sem ofurhetju ofan í klóakið. Ein tegund köngulónna sem ég hafði notað var brúnn fiðlubakur. Bit hennar var talið eitt hættulegasta bit köngulóa í Bandaríkjunum, hættulegra en bit svörtu ekkjunnar. Eitt bit gat valdið því að góður klumpur af kjöti í kringum bitsvæðið sortnaði og rotnaði í burtu. Ég hafði látið margar slíkar bíta Lung á líffræðilega viðkvæmari svæðin hans.
 
@@ -164,4 +164,4 @@ Lisa brosti til mín, "Ef þú vilt fá að vita restina er ég hrædd um að þ
 
 ---
 
-[Fyrri hluti](Ormur-02.05.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.05.md) - [Næsti hluti](Ormur-02.07.md)
