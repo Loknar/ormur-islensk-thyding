@@ -10,31 +10,31 @@
 
 "Hljómar vel," sagði ég.
 
-"Þetta er bara nokkrar húsaraðir í burtu," sagði Brian, "en við yrðum full áberandi ef þú kæmir með okkur þángað klædd í búningnum þínum."
+"Þetta er bara nokkrar húsaraðir í burtu," sagði Brian, "en við yrðum full áberandi ef þú kæmir með okkur þangað klædd í búningnum þínum."
 
 Ég starði á hann í smá stund, mig langaði ekki að skilja staðhæfinguna hans. Það var að taka mig of langan tíma að svara fattaði ég, planið mitt við það að renna í sandinn áður en það hófst. Hvað sem því leið langaði mig að sparka í sjálfa mig. Auðvitað var þetta auðséð framhald af hlutum sem ég hafði sett í gang. Að ganga til liðs við þau þýddi að ég þyrfti að sýna þeim mitt raunvörulega andlit, kynna mig fyrir þeim líkt og þau höfðu nú þegar gert. Þar til ég gerði það gætu þau ekki treyst mér fyrir leyndarmálum sínum.
 
-Líklega var svefnskortur í bland við alla atburði dagsins að valda fyrningu í dómgreind minni og framsýni, en það þýddi lítið að dvelja á því núna. Ég hafði einfaldlega málað mig út í horn.
+Líklega var svefnskortur í bland við alla atburði dagsins að valda fyrningu í dómgreind minni og skertri framsýni, en það þýddi lítið að dvelja á því núna. Ég hafði einfaldlega málað mig út í horn.
 
 "Jæja þá," sagði ég og hljómaði mun rólegri en ég var. Eða ég vonaði það. "Þessi búningur er hálf óþægilegur svona undir öðrum fötum. Get ég fengið smá næði?"
 
 "Viltu húsasund, eða ..." spurði Lisa muldrandi.
 
-"Ég get skipt um föt hérna, tekur bara svona mínútu," sagði ég hvatvísislega á meðan ég leit í kringum mig. Húsin í götunni voru flest bara ein eða tvær hæðir, húsin sem voru í eða yfir þeirri hæð sem við vorum í voru öll frekar langt í burtu, fyrir utan næsta hús við hliðina á okkur sem var einni hæð hærra, en það voru sem betur fer engir gluggar á því sem sneru að okkur. Ég gat ekki ímyndað mér að neinn gæti greint hver ég væri úr einhverjum af fjarlægu háhýsunum í kring. Ef einhver sæi mig nógu skýrt til að geta borið kennsl á hver ég var yrði ég mjög hissa.
+"Ég get skipt um föt hérna, tekur bara svona mínútu," sagði ég hvatvísislega á meðan ég leit í kringum mig. Húsin í götunni voru flest bara ein eða tvær hæðir, húsin sem voru í eða yfir þeirri hæð sem við vorum í voru öll frekar langt í burtu, fyrir utan næsta hús við hliðina á okkur sem var um einni hæð hærra, en það voru sem betur fer engir gluggar á því sem sneru að okkur. Ég gat ekki ímyndað mér að neinn gæti greint hver ég væri úr einhverjum af fjarlægu háhýsunum í kring. Ef einhver sæi mig nógu skýrt til að geta borið kennsl á hver ég væri yrði ég mjög hissa.
 
 Á meðan þau löbbuðu í átt að eldvarnarstiganum dró ég fram fötin sem ég hafði troðið í bakpokann. Fyrir utan brynhlífarnar var búningurinn minn allur eitt heildstætt stykki, fyrir utan beltið og grímuna. Ég hafði grímuna áfram á mér á meðan ég losaði beltið og klæddi mig úr búningnum. Ég var ekkert ósæmileg, ég hafði klætt mig í svartan bol og svartar hjólabuxur innanundir búninginn, til að verjast aðeins kuldanum. Köngulóarsilkið hélt ekki mjög vel hita eitt og sér. Ég klæddi mig í gallabuxurnar og hettupeysuna, nuddaði svo handleggina og axlirnar til að reyna að ná mildum hrollinum úr mér. Ég pakkaði búningnum mínum og nýja nestisboxinu mínu í bakpokann.
 
 Skyndilega stakk mig eftirsjá að hafa ekki valið betri föt til að vera í en þessa víðu hettupeysu og of stóru gallabuxur. Þessi eftirsjá breyttist í kvíða. Hvað mundi þeim finnast þegar þau sæju hina raunvörulegu mig? Brian og Alec voru flottir strákar, á mjög mismunandi hátt. Lisa var, á bilinu venjuleg og falleg, meira nær því að vera falleg samt. En ég hinsvegar, var einhverstaðar á milli þess að vera 'nörd' og venjuleg. Hvar ég staðsetti mig á þessu bili fór mikið eftir því hvernig skapi ég var í þegar ég leit í spegil. Þau voru svöl, sjálfsörugg og sátt með sig. Ég var ... ég.
 
-Ég batt enda á þessar hugsanir mínar áður en ég náði að stífna upp. Ég var ekki hin hefðbundna venjulega Taylor hérna. Hér og nú var ég stelpan sem hafði komið Lung á sjúkrahús, eins óvart og það var. Ég var stelpan sem hafði ákveðið að gerast einskonar gagnanjósnari til að afla upplýsinga um sérstaklega þráláta klíku ofurillmenna. Ég var, þangað til mér dytti betra nafn í hug til að nota, Padda, stelpan sem Undersiders teymið vildi í lið með sér.
+Ég batt enda á þessar hugsanir mínar áður en ég náði að stressa mig of mikið. Ég var ekki hin hefðbundna venjulega Taylor hérna. Hér og nú var ég stelpan sem hafði komið Lung á sjúkrahús, eins óvart og það var. Ég var stelpan sem hafði ákveðið að gerast einskonar gagnanjósnari til að afla upplýsinga um sérstaklega þráláta klíku ofurillmenna. Ég var, þangað til mér dytti betra nafn í hug til að nota, Padda, stelpan sem Undersiders teymið vildi í lið með sér.
 
-Ef ég segðist hafa verið uppfull sjálfstrausts á leið minni niður eldvarnarstigann væri ég að ljúga. Að því sögðu hafði mér tekist að peppa sjálfa mig nógu mikið upp til að koma mér niður stigann, enn með grímuna fyrir andlitinu, búninginn í bakpokanum. Ég stóð fyrir framan þau, leit í kringum mig til að ganga úr skugga um að enginn annar væri nálægt og tók svo af mér grímuna. Í stundarkorn fékk ég vænan skelk þar sem ég stóð hálfblind, andlitin þeirra bara einhverjir flekkir, ég gróf eftir gleraugunum mínum í bakpokanum og setti þau upp.
+Ef ég hefði sagst hafa verið uppfull sjálfstrausts á leið minni niður eldvarnarstigann hefði ég verið að ljúga. Að því sögðu hafði mér tekist að peppa sjálfa mig nógu mikið til að koma mér niður stigann, enn með grímuna fyrir andlitinu, búninginn í bakpokanum. Ég stóð fyrir framan þau, leit í kringum mig til að ganga úr skugga um að enginn annar væri nálægt og tók svo af mér grímuna. Í stundarkorn fékk ég vænan skelk þar sem ég stóð hálfblind, andlitin þeirra bara einhverjir flekkir, ég gróf eftir gleraugunum mínum í bakpokanum og setti þau upp.
 
-"Hæ," sagði ég væmnislega og reyndi að laga til hárið með fingrunum, "ég hugsa að það mundi ekki ganga fyrir ykkur að kalla mig Pöddu eða nýju stelpu. Ég er Taylor."
+"Hæ," sagði ég væmnislega og reyndi að laga til hárið með fingrunum, "ég hugsa að það mundi ekki ganga fyrir ykkur að kalla mig Pöddu eða nýju stelpuna endalaust. Ég heiti Taylor."
 
-Að ég skyldi hafa ákveðið að nota alvöru nafnið mitt var töluverður áhættuleikur af minni hálfu. Ég óttaðist að það yrði enn einn hluturinn sem ég mundi sjá eftir þegar liði á, svona eins og þegar ég uppgötvaði að ég þyrfti að fara úr búningnum mínum. Ég reyndi að réttlæta það með því að segja sjálfri mér að ég væri nú þegar búin að stinga mér í djúpu laugina. Að nota alvöru nafnið mitt gæti hæglega sparað mér vandræði síðarmeir ef einhver þeirra færu að grafa eftir upplýsingum um mig, eða ef við myndum rekast á einhvern sem ég þekkti með þeim.
+Að ég skyldi hafa ákveðið að nota alvöru nafnið mitt var talsverður áhættuleikur af minni hálfu. Ég óttaðist að það yrði enn einn hluturinn sem ég myndi sjá eftir þegar liði á, svona eins og þegar ég uppgötvaði að ég þyrfti að fara úr búningnum mínum. Ég reyndi að réttlæta það með því að hugsa með sjálfri mér að ég væri nú þegar búin að stinga mér í djúpu laugina. Að nota alvöru nafnið mitt gæti hæglega sparað mér vandræði síðarmeir ef einhver þeirra færu að grafa eftir upplýsingum um mig, eða ef við myndum saman rekast á einhvern sem ég þekkti.
 
-Ég áætlaði, vonaði, að þegar þessu öllu lyki gæti ég hugsanlega togað í einhverja spotta með einhverjum eins og Armsmaster og forðast að þau myndu koma upp um hver ég væri á bak við grímuna. Ekki ómögulegt að ímynda sér það, miðað við öryggisstig sumra fangelsanna sem höfðu verið byggð fyrir paramenni. En það var seinnitímavandamál, ég mundi vaða það vað þegar að því kæmi.
+Ég áætlaði, vonaði, að þegar þessu öllu lyki gæti ég hugsanlega togað í einhverja spotta með einhverjum eins og Armsmaster og forðast að þau myndu koma upp um hver ég væri á bak við grímuna. Ekki ómögulegt að ímynda sér að það gæti gengið, miðað við öryggisstig sumra fangelsanna sem höfðu verið byggð fyrir paramenni. En það var seinnitímavandamál, ég mundi vaða það vað þegar að því kæmi.
 
 Alec hvolfdi í sér augunum þegar ég kynnti mig, Brian glotti bara. Lisa aftur á móti lagði aðra höndina yfir axlirnar á mér og knúsaði mig. Hún var aðeins eldri en ég og aðeins hærri sem hentaði vel fyrir það hvernig hún knúsaði mig. Það kom mér í opna skjöldu hve notalegt faðmlagið var. Eins og ég hefði þurft knús frá einhverjum öðrum en pabba mínum í langan tíma.
 
@@ -50,7 +50,7 @@ Við stoppuðum fyrir framan gamla verksmiðju með rauða múrsteina útveggi, 
 
 Brian hleypti okkur inn um litla hurð á hlið byggingarinnar. Inni var talsvert myrkur, eina ljósið kom inn um rykfallna glugga nálægt loftinu. Ég virti fyrir mér risastórar færibandavélar sem höfðu greinilega verið strípaðar fyrir varahluti. Lök höfðu verið dregin yfir hluta þeirra. Ég rak augun í köngulóarvef og virkjaði kraftinn minn, ég skynjaði pöddur út um allt. Hér hafði greinilega ekki verið nein starfsemi í mjög langan tíma.
 
-"Komdu," sagði Brian rekandi á eftir mér. Ég leit í áttina til hans og sá að hann var kominn hálfa leið upp hringstiga í horninu. Ég dreif mig upp hringstigann á eftir honum.
+"Komdu, hérna upp," sagði Brian rekandi á eftir mér. Ég leit í áttina til hans og sá að hann var kominn hálfa leið upp hringstiga í horninu. Ég dreif mig upp hringstigann á eftir honum.
 
 Eftir að hafa séð niðurnídda fyrstu hæðina kom önnur hæðin mér mjög á óvart. Þetta var ris og andstæðurnar voru svakalegar. Útveggirnir voru rauðir múrsteinar og það var ekkert loft fyrir utan þakið sjálft og þykkar járnstoðir sem studdu það. Hvað svæðisskiptingu varðaði virtist loftið skiptast í þrjá hluta, en það var erfitt átta sig á því þar sem opna rýmið var svo yfirþyrmandi.
 
