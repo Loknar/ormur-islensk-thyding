@@ -52,10 +52,118 @@ Brian hleypti okkur inn um litla hurð á hlið byggingarinnar. Inni var talsver
 
 "Komdu, hérna upp," sagði Brian rekandi á eftir mér. Ég leit í áttina til hans og sá að hann var kominn hálfa leið upp hringstiga í horninu. Ég dreif mig upp hringstigann á eftir honum.
 
-Eftir að hafa séð niðurnídda fyrstu hæðina kom önnur hæðin mér mjög á óvart. Þetta var ris og andstæðurnar voru svakalegar. Útveggirnir voru rauðir múrsteinar og það var ekkert loft fyrir utan þakið sjálft og þykkar járnstoðir sem studdu það. Hvað svæðisskiptingu varðaði virtist loftið skiptast í þrjá hluta, en það var erfitt átta sig á því þar sem opna rýmið var svo yfirþyrmandi.
+Eftir að hafa séð niðurnídda fyrstu hæðina kom önnur hæðin mér mjög á óvart. Þetta var ris og andstæðurnar voru svakalegar. Útveggirnir voru rauðir múrsteinar og það var ekkert loft fyrir utan þakið sjálft og þykkar járnstoðir sem studdu það. Hvað svæðisskiptingu varðaði virtist loftið skiptast í þrjá hluta, en það var erfitt að lýsa því almennilega þar sem opna rýmið var hálf yfirþyrmandi.
 
+Stiginn opnaðist upp í það sem virtist hafa verið innréttað sem stofa, jafnvel þó rýmið hefði álíka gólfpláss og öll neðri hæðin heima hjá mér. Rýminu var skipt upp með tveimur sófum sem sneru horn í horn og fyrir framan þá var stofuborð og stærsta sjónvarpstæki sem ég hafði nokkurn tímann séð. Fyrir neðan sjónvarpið voru sex mismunandi leikjatölvur, DVD spilari og ein eða tvær vélar sem ég kannaðist ekki við. Mig grunaði að annað tækið væri TiVo, stafrænt upptökutæki, ég hafði heyrt um þau en hafði aldrei séð svoleiðis með eigin augum. Hátalarar stærri en sjálft sjónvarpið heima hjá mér stóðu sitthvoru megin við sjónvarpið. Á bak við sófana voru nokkur borð, opið rými með mottum og hillum upp við veggi. Hillurnar voru hálftómar, í þeim voru einhverjar bækur og tímarit og svo allskonar hlutir úr ýmsum áttum, allt frá stökum skóm til kerta.
 
+Rými númer tvö var skipt niður í fjölda herbergja. Í raun hefði verið meira lýsandi að kalla þau hólf, þrjú sitthvoru megin við gang sem lá í gegnum mitt rýmið, sex í heildina. Hvert herbergi var nokkuð rúmgott, en veggirnir höfðu ekki verið reistir alla leið upp í loft, þrátt fyrir að þeir væru alveg tveir og hálfur meter á hæð. Á þrjár af hurðunum sex höfðu verið spreyjuð listaverk. Fyrsta hurðin bar kórónu í dramatíksum graffiti stíl. Hurð númer tvö bar skuggamyndir af karli og konu á bláum bakgrunni, líkjandi eftir 'karla' og 'kvenna' merkjunum sem voru svo oft notuð til að merkja baðherbergi. Þriðja hurðin bar andlit stúlku með stút á vörum sínum. Ég velti fyrir mér hver sagan gæti hugsanlega verið á bak við myndina á þriðju hurðinni.
+
+"Flott verk," sagði ég og benti á hurðina með kórónunni, mér fannst ég í kjölfarið hálf kjánaleg fyrir að hafa látið þetta vera það fyrsta sem ég sagði þegar ég gekk inn í rýmið.
+
+"Takk," svaraði Alec. Ég ályktaði að verkið væri hans.
+
+Ég tók mér smá stund í viðbót til að skoða mig um. Innst í risinu, þriðja og síðasta rýminu, var stórt borð og nokkrir skápar. Þó ég gæti ekki skoðað það betur án þess að fara yfir allt risið gat ég ályktað að eldhúsið væri þarna endanum á risinu.
+
+Allstaðar var einhver smá óreiða. Mér fannst ég næstum dónaleg að einblína á það, en það voru staflaðir pítsukassar á einu borðinu, tveir skítugir diskar á sófaborðinu, föt lágu á bakinu á öðrum sófanum. Ég sá að gosflöskum, eða mögulega bjórflöskum, hafði verið staflað í pýramída á borðinu í þriðja rýminu. Óreiðan var þó ekki þannig að mér blöskraði. Ég sá ruslið meira svona eins og yfirlýsingu ... eins og, 'Þetta er okkar svæði.' Engin yfirsjá frá fullorðnum hér.
+
+"Ég öfunda ykkur af þessum stað," viðurkenndi ég og meinti það.
+
+"Kjáni," sagði Alec, "hvers vegna öfundarðu okkur?"
+
+"Ég meina þessi staður ykkar er nettur," árétti ég í tilraun til að svara fyrir mig.
+
+Lisa mælti áður en Alec gat svarað mér, "Ég held að það sem Alec meini er að þetta er staðurinn þinn líka núna. Þetta er teymissvæðið, og nú ert þú meðlimur í teyminu."
+
+"Ó," sagði ég skömmustulega. Lisa og Alec gengu inn í stofuna, á meðan Brian fór inn í endann á risinu. Lisa gaf mér handabendingu að fylgja sér og ég fylgdi. Alec lagðist í annan sófann og teygði sig yfir hann allan, svo ég settist í hinn endann á sófanum sem Lisa settist í.
+
+"Herbergin," sagði Lisa, "ytri röðin, frá næst til fjærst, eru Alec, salerni, mitt." Svo herbergið með kórónunni var herbergið hans Alec, og Lisa átti herbergið með myndinni af stelpunni með stútinn. Hún hélt áfram, "Á innri hliðinni, herbergið hennar Rachel, hundarnir hennar Rachel, og geymslukompa."
+
+Lisa þagnaði og leit á Alec og spurði, "Heldurðu að hún-"
+
+"Döh," greip Alec inn í.
+
+"Hvað?" spurði ég, alveg týnd.
+
+"Við skulum tæma geymslukompuna," sagði Lisa, "Svo þú sért með herbergi."
+
+Mér var brugðið. "Þið þurfið ekki að gera það fyrir mig." sagði ég, "ég hef stað."
+
+Lisa setti upp svip, næstum eins og hún fyndi til sársauka. Hún bað mig, "Getum við gert það bara samt, og ekki velta okkur upp úr því? Það væri mun ákjósanlegra að þú hefðir þitt eigið rými hér."
+
+Það greinilega sást að ég var hissa vegna þess að Alec hóf að útskýra, "Brian er með íbúð, og var staðfastur á því að hvorki þurfa né vilja sitt eigið herbergi hérna ... en hann og Lisa hafa rifist reglulega sökum þess. Hann getur hvergi sofið nema í sófanum ef hann slasar sig og getur ekki farið heim í íbúðina sína þannig, og hann hefur engan stað til að geyma allt dótið sitt á, svo það endar á víð og dreif um allt. Þiggðu herbergið. Þú værir að gera okkur öllum greiða með því."
+
+"Þá það," sagði ég og bætti við, "Takk fyrir," bæði fyrir útskýringuna og auðvitað herbergið.
+
+"Síðast þegar hann lenti í áflogum við Shadow Stalker kom hann hingað og blæddi yfir allt, þar á meðal hvítan sófa sem ég hélt uppá," vældi Lisa, "níu hundruð dala sófi, við urðum að henda honum og fá okkur nýjan."
+
+"Fjárans Shadow Stalker," sagði Alec með vorkunnartón.
+
+Brian var á leiðinni til baka frá hinum enda risins og kallaði til okkar, "Rachel er ekki hér og ekki hundarnir hennar heldur. Hún hlýtur að vera að viðra þá eða vinna." Þegar hann var kominn í stofuna bætti hann við, "Bölvað. Ég verð alltaf stressaður þegar hún fer á stjá ein." Hann gekk að sófanum þar sem Alec hafði breitt úr sér.
+
+"Búðu til pláss fyrir mig," sagði Brian við hann.
+
+"Ég er þreyttur. Sestu í hinn sófann," muldraði Alec með annan handlegginn fyrir andlitinu.
+
+Brian leit á Lisu og mig, Lisa færði sig í hinn endann á sófanum til að gera pláss. Brian leit aftur á Alec en fór svo og settist á milli okkar stelpnanna. Ég færði mig nær mínum enda og færði aðra löppina undir mig til að minnka plássið sem ég tók.
+
+"Svo," byrjaði Brian, "díllinn er svona, tvöþúsund dalir á mánuði, fyrir það eitt að vera meðlimur af teyminu. Það felur í sér að þú tekur þátt í að ákveða verk sem við vinnum, þú kemur með í verkin, þú heldur þér virkri, þú ert til taks ef við þurfum að hringja í þig."
+
+"Ég á ekki farsíma," viðurkenndi ég.
+
+"Við græjum einn fyrir þig," sagði hann, líkt og það væri ekkert mál. Eflaust var það ekkert mál. "Venjulega græðum við eitthvað á bilinu tíu til þrátíuogfimm þúsund fyrir stakt verk. Það skiptist svo í fjóra hluta ... fimm hluta núna með þig í teyminu."
+
+Ég kinkaði kolli og andaði frá mér, "Það er ekkert klink."
+
+Brian kinkaði kolli á móti, með smá bros á vör, "Neibb. En að öðru, hversu vel ertu að þér varðandi að þekkja andstæðingana sem við erum að fara að eiga við?"
+
+Ég blikkaði nokkrum sinnum, en sagði svo, "Þú meinar skikkjurnar á þessu svæði? Ég hef kynnt mér upplýsingar sem eru aðgengilegar á netinu, lesið öll skikkjutímarit síðustu ára sem ég hef komist í, meira eftir að ég öðlaðist kraftana ... en ég veit ekki. Síðasti sólarhringur hefur sýnt mér að það er hellingur sem ég veit ekki, og eflaust er hellingur sem ég get ekki komist að nema á erfiða veginn, með því að reka mig á það."
+
+Brian brosti. Og þá meina ég, hann brosti breitt. Það lét hann líta meira út eins og strák heldur en ungan mann. Hann svaraði, "Veistu? Flestir skilja það nefnilega ekki. Ég skal reyna að miðla þeirri þekkingu sem ég hef öðlast, svo þú þurfir ekki alltaf að reka þig á hlutina, og ekki hika við að spurja ef það er eitthvað sem þér finnst þú ekki vera klár á, allt í lagi?"
+
+Ég kinnkaði kolli og brosið hans breikkaði. Hann sagði gleðilega, "Þú trúir því varla hvað ég er feginn að þú sért að taka þessum hlutum alvarlega, þar sem sumir -" hann leit í áttina að Alec þar sem hann lá í sófanum, "-láta mig nánast þurfa að snúa upp á höndina á sér til að fá þá til að hlusta, og aðrir," hann benti yfir öxlina á sér að Lisu, "halda að þeir viti allt."
+
+"Ég veit allt," svaraði Lisa, "það er krafturinn minn."
+
+"Ha!?" sagði ég framfyrir Brian. Hjartslátturinn jókst, og hann hafði ekki verið eitthvað rólegur fyrir, "Ertu alvitur?"
+
+Lisa hló, "Nei nei. Ég veit ýmislegt samt. Krafturinn minn segir mér hluti."
+
+Ég stresskyngdi, vonaði að það hefði ekki verið of augljóst, og spurði, "Eins og?" Eins og hvers vegna ég ákvað að gerast liðsfélagi þeirra?
+
+Lisa settist fram og lagði olnbogana á hnén á sér, "Eins og að ég vissi að þú værir á almenningsbókasafninu þegar þú svaraðir skilaboðunum mínum á Parahumans Online. Ef mig hefði langað, og ef ég vissi hvernig, þá er ég viss um að ég hefði getað komist að því með því að brjótast inn á vefjóninn sem hýsir gagnagrunna síðunnar og grafa í gegnum logga til að finna IP-töluna sem þú tengdist síðunni með, en krafturinn minn gerir mér kleift að sleppa öllum þeim skrefum og gefur mér svarið bara svona." Hún smellti fingrunum.
+
+"Og hvers vegna varstu að nefna að þú vissir hvar hún væri?" spurði Brian, með aðeins of rólegri röddu.
+
+"Ég vildi sjá hvernig hún mundi bregðast við. Atast aðeins í henni," sagði Lisa og flissaði.
+
+"Fjandakornið Lisa-" byrjaði Brian, en Lisa gaf honum handabendingu um að draga sig til hlés.
+
+"Ég er að fræða nýliðann okkar," hún hélt áfram handabendingunni, veifaði endurtekið frá sér, "skammaðu mig seinna."
+
+Hún gaf honum ekki færi á að svara, leit á mig og útskýrði, "Krafturinn minn fyllir í eyðurnar milli þess sem ég veit. Iðulega þarf ég einhverjar upplýsingar til að byrja með, en ég get líka notað upplýsingar sem krafturinn minn veitir mér til að láta kraftinn minn veita mér enn meiri upplýsingar, og iðulega keðjast það þannig einhvernveginn saman og gefur mér stöðugt streymi upplýsinga."
+
+Ég kyngdi aftur. "Og þú vissir að skikkja var á leiðinni til okkar í nótt?"
+
+"Já," sagði hún, "Það kom þó meira eins og vel upplýst ágiskun."
+
+"Og þú vissir um það sem fór fram í PHQ með Lung á sama hátt?"
+
+Bros Lisu breikkaði, "Ég verð að viðurkenna að ég svindlaði þar. Að finna út lykilorð er mjög auðvelt með kraftinum mínum. Ég fletti stundum í gegnum stafræn skjöl hjá PHQ og skemmti mér við að horfa á smá raunvöruleikasjónvarp úr öryggismyndavélakerfinu þeirra þegar mér leiðist. Það kemur sér vel vegna þess að ég er ekki bara að þefa uppi óskunda sem kemur uppá útfrá því sem ég sé, heyri og les, heldur fyllir krafturinn minn inn allskongar smáatriði eins og breytingar á venjum og hópapólitík."
+
+Ég starði á hana, bróðurparturinn af mér skelfdur yfir því að hafa valið að leggja stund á gagnanjósnir gegn stelpu með krafta sem veittu henni ofurinnsæi.
+
+Hún virtist taka þögn minni sem undrun en ekki ótta og brosti með refabrosinu sínu, "Hann er ekki það magnaður. Virkar best með staðfastar upplýsingar. Þar sem um er að ræða tímasetningar, dulkóðun, og svo framvegis. Ég get lesið hluti út úr breytingum á líkamstjáningu, en þær upplýsingar eru iðulega minna áreiðanlegar og verða hálfgerður hausverkur. Þær upplýsingar sem ég þarf geta verið yfirþyrmandi einar og sér, svo ég reyni iðulega að grafa mig ekki í óþarfa upplýsingagröft, skilurðu hvað ég meina?"
+
+Ég skildi hana fullkomlega, þetta rímaði við mínar eigin pælingar um kraftinn minn og getu mína til að sjá og heyra hluti í gegnum pöddurnar mínar. Skýringar hennar létu mér samt ekki líða neitt betur.
+
+"Og svo því sé haldið til haga," sagði Brian, ennþá glápandi á Lisu, "jafnvel þó hún viti helling þá á hún það stundum til að haga sér eins og algjör fáviti."
+
+Lisa sló hann í handlegginn.
+
+"Svo hvaða krafta hafið þið strákar?" spurði ég Brian og Alec, í von um að ná að beina umræðuefninu frá kraftinum hennar Lisu.
+
+Þeir fengu ekki tækifæri til að svara mér. Ég heyrði gelt á hæðinni fyrir neðan. Það sem fylgdi gerðist mjög hratt, ég stóð upp, var stigin um tvo metra frá sófanum. Þrír óðir hundar komu á fleygiferð upp frá stiganum, þeir stukku á mig svo ég skall upp að veggnum fyrir aftan mig, slef flaug úr kjaftvikunum á þeim og tennur þeirra dundu á mér, glefsandi í útlimi mína og andlit.
 
 ---
 
-[Fyrri hluti](Ormur-02.06.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.06.md) - [Næsti hluti](Ormur-02.08.md)
