@@ -76,7 +76,7 @@ Lisa mælti áður en Alec gat svarað mér, "Ég held að það sem Alec meini 
 
 "Ó," sagði ég skömmustulega. Lisa og Alec gengu inn í stofuna, á meðan Brian fór inn í endann á risinu. Lisa gaf mér handabendingu að fylgja sér og ég fylgdi. Alec lagðist í annan sófann og teygði sig yfir hann allan, svo ég settist í hinn endann á sófanum sem Lisa settist í.
 
-"Herbergin," sagði Lisa, "ytri röðin, frá næst til fjærst, eru Alec, salerni, mitt." Svo herbergið með kórónunni var herbergið hans Alec, og Lisa átti herbergið með myndinni af stelpunni með stútinn. Hún hélt áfram, "Á innri hliðinni, herbergið hennar Rachel, hundarnir hennar Rachel, og geymslukompa."
+"Herbergin," sagði Lisa, "ytri röðin, frá næst til fjærst, eru Alec, salerni, mitt." Svo herbergið með kórónunni var herbergið hans Alec, og Lisa átti herbergið með myndinni af stelpunni með stútinn. Hún hélt áfram, "Á innri hliðinni, herbergið hennar Rachel, hundarnir hennar Rachel, og geymsla."
 
 Lisa þagnaði og leit á Alec og spurði, "Heldurðu að hún-"
 
@@ -84,7 +84,7 @@ Lisa þagnaði og leit á Alec og spurði, "Heldurðu að hún-"
 
 "Hvað?" spurði ég, alveg týnd.
 
-"Við skulum tæma geymslukompuna," sagði Lisa, "Svo þú sért með herbergi."
+"Við skulum tæma geymsluna," sagði Lisa, "Svo þú sért með herbergi."
 
 Mér var brugðið. "Þið þurfið ekki að gera það fyrir mig." sagði ég, "ég hef stað."
 
