@@ -1,7 +1,7 @@
 
 # Ormur
 
-![Brockton Bay, Boardwalk](/myndir/borgarmynd.png?raw=true "Ormur")
+![Brockton Bay, Boardwalk](/myndir/ormur.png?raw=true "Ormur")
 
 Íslensk þýðing á [vefbókinni **Worm** eftir **John C. McCrae**](https://parahumans.wordpress.com/) (eða [**Wildbow**](https://tvtropes.org/pmwiki/pmwiki.php/Creator/Wildbow)).
 
