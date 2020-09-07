@@ -7,6 +7,10 @@ Endilega, settu þig bara í samband við okkur til að ganga úr skugga um að 
 
 Reyndu eftir besta megni að samræma orðaval við áðurgerðar þýðingar. Ef til dæmis orðið 'storage closet' er þýtt sem einfaldlega 'geymsla' í kaflanum á undan, en ekki til dæmis 'geymsluherbergi' eða 'geymslukompa', reyndu þá að halda þig við orðið 'geymsla', eða stingdu upp á að breyta orðinu í kaflanum á undan í til dæmis 'geymslukompu' og notaðu svo það orð ef þú telur þig hafa góð rök fyrir því að nota það orð frekar en hitt. Taktu slíkt fram í upplýsingum með pullunni.
 
+## Flott mynd, sami bakgrunnur og á vefsíðu höfundsins, en hvaðan kemur lógóið í upphafsstafnum?
+
+Þessi scarab 'O' hringur er að mér best vitandi hönnun frá einum lesanda sögunnar. Þetta er frekari útfærsla á tilteknu tákni sem lýst er í sögunni Ward, sem er framhald af Worm. Þegar ég reyndi að rekja uppruna táknsins endaði ég á [þessum reddit þræði á /r/Parahumans frá 2017-11-18 (varúð, inniheldur hugsanlega söguspilla)](https://www.reddit.com/r/Parahumans/comments/7dt7mj/parahumansnet_favicon/) þar sem umræður voru um að skapa favicon fyrir [Parahumans.net, vefinn þar sem Wildbow birti framhaldssöguna Ward](https://www.parahumans.net/), það er ekki að sjá að Wildbow hafi kosið að nota þær útfærslur sem stungið var uppá í þræðinum, en ein uppástungan var semsagt þessi scarab 'O' hringur, sem varð fljótt mjög vinsæll meðal lesenda og er í dag lógóið sem /r/Parahumans subredditið skartar.
+
 ## Hver vegna ekki að íslenska öll nöfn líka?
 
 Eins og getur verið gaman að koma með íslenskuð skírnöfn, skikkjunöfn, endiboðanöfn og fleira í þeim dúr þá er það klárlega mjög vandmeðfarið verk sem getur torveldað lestur og gert fólki erfitt að hoppa á milli upprunaefnisins og þýðingarinnar. Þess vegna hefur hingað til verið haldið sig við upprunaleg skírnöfn/hetjunöfn.
@@ -41,20 +45,27 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Armsmaster | Vopngeir |
 | Bakuda | Búmmhildur |
 | Bitch | Tík |
+| Bonesaw | Beinsög |
 | Clockblocker | Tímadrjóli |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
 | Gallant | Galvaskur |
 | Glory Girl | Dýrðardís |
+| Glory Hole | Dýrðardrusla |
 | Grue | Skolli |
+| Harbringer | Fyrirboði |
 | Hellhound | Heljarhundur |
 | Imp | Ári |
+| Jack Slash | Siggi Sveðja |
 | Lung | Fáfnir |
 | Regent | Ráðanautur |
 | Scion | Baldur (Gullbaldur) |
 | Shadow Stalker | Skuggabára |
+| Siberian | Síbería |
 | Skitter | Trítla |
+| Sundancer | Sólína |
 | Tattletale | Blaðurspjalla |
+| Trickster | Klemmi |
 | Weaver | Spinna |
 
 ### Orð
