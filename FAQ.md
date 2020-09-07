@@ -90,7 +90,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Leviathan | Ægir |
 | Simurgh | Sígyn |
 
-## Af hverju ertu að leggja alla þessa vinnu á þig frítt? Ertu fáviti?
+## Af hverju ertu að leggja alla þessa vinnu á þig frítt?
 
 ...
 
