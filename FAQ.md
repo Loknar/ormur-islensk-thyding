@@ -9,7 +9,7 @@ Reyndu eftir besta megni að samræma orðaval við áðurgerðar þýðingar. E
 
 ## Hver vegna ekki að íslenska öll nöfn líka?
 
-Eins og getur verið gaman að koma með íslenskuð skírnöfn, skikkjunöfn, endiboðanöfn og fleira í þeim dúr þá er það klárlega mjög vandmeðfarið verk sem getur torveldað lestur og gert fólki erfitt fyrir að hoppa á milli upprunaefnisins og þýðingarinnar. Þess vegna hefur hingað til verið haldið sig við upprunaleg skírnöfn/hetjunöfn.
+Eins og getur verið gaman að koma með íslenskuð skírnöfn, skikkjunöfn, endiboðanöfn og fleira í þeim dúr þá er það klárlega mjög vandmeðfarið verk sem getur torveldað lestur og gert fólki erfitt að hoppa á milli upprunaefnisins og þýðingarinnar. Þess vegna hefur hingað til verið haldið sig við upprunaleg skírnöfn/hetjunöfn.
 
 Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar fyrir bæði skírnöfn og hetjunöfn, hér fyrir neðan eru nokkrar slíkar hugmyndir.
 
@@ -56,12 +56,12 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Tattletale | Blaðurspjalla |
 | Weaver | Spinna |
 
-### Orð (notuð orð)
+### Orð
 
 | Orð | Íslenskun |
 | --- | --- |
 | Cape | Skikkja |
-| Endbringer | Endiboði |
+| Endbringer | Endiboðar/Endiboði, Jötnar/Jötunn |
 | Parahuman | Paramenni |
 
 ### Endiboðar
