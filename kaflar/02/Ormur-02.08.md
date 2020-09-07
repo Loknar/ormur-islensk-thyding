@@ -110,4 +110,4 @@ Brian var bersýnilega létt, hann brosti til mín og opnaði dyrnar fyrir mig, 
 
 ---
 
-[Fyrri hluti](Ormur-02.07.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.07.md) - [Næsti hluti](Ormur-02.09.md)

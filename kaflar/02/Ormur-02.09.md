@@ -6,13 +6,13 @@ Eins og ég hafði óttast fylgdi talsvert óþægileg þögn þegar við vorum 
 
 "Ég er fegin að þú fórst ekki," sagði Lisa mér, með bara örlítið bros á vör, "Alec, geturðu sótt skyndihjálparbúnaðinn? Hann er líklega inni í geymslunni."
 
-Á meðan Alec gerði það lét Brian mig setjast á enda sófans og ég fór úr peysunni svo hægt væri að skoða meiðslin betur. Ég dró bolinn upp fyrir rifbeinin til að athuga alvarleika áverkanna eftir einn hundinn sem hafði glefsað í magann og bakið. Fötin mín höfðu tekið það versta og ég var einungis með um fjóra tiltölulega grunna skurði á bakinu og síðunni. Það voru marblettir og fjöldinn allur af skrámum á svæðum sem ég fann að ég var helaum í, en mig grunaði að megnið af eymslunum yrðu farin eftir tvo eða þrjá daga. Ég var með djúpan skurð í eyranu, Það yrði erfiðara að fela, en ég var nokkuð viss um að ég gæti haldið því leyndu fyrir pabba svo hann myndi ekki trompast.
+Á meðan Alec gerði það lét Brian mig setjast á enda sófans og ég fór úr peysunni svo hægt væri að skoða meiðslin betur. Ég dró bolinn upp fyrir rifbeinin til að athuga alvarleika áverkanna eftir einn hundinn sem hafði glefsað í magann og bakið. Fötin mín höfðu tekið það versta og ég var einungis með um fjóra tiltölulega grunna skurði á bakinu og síðunni. Það voru marblettir og fjöldinn allur af skrámum á svæðum sem ég fann að ég var helaum í, en mig grunaði að megnið af eymslunum yrðu farin eftir tvo eða þrjá daga. Ég var með djúpan skurð í eyranu, það yrði erfiðara að fela, en ég var nokkuð viss um að ég gæti haldið því leyndu fyrir pabba svo hann myndi ekki trompast.
 
-Mesti skaðinn sýndist mér vera á vinstri upphandleggnum, þar leit út eins og tönn hefði stungist djúpt í upphandlegginn og síðan dregist um þrjá sentimetra eða svo niður í átt að úlnliðnum. Svæðið í kringum skurðinn var þegar orðið mjög marið. Ég var ekki viss hve djúpur skurðurinn var, en mig grunaði sterklega að ég ætti að finna til mun meiri sársauka í upphandleggnum en ég gerði í augnarblikinu. Blóð hafði runnið niður handlegginn og það blæddi enn hressilega úr skurðinum.
+Mesti skaðinn sýndist mér vera á vinstri upphandleggnum, þar leit út eins og tönn hefði stungist djúpt í upphandlegginn og síðan dregist um þrjá sentimetra eða svo niður í átt að úlnliðnum. Svæðið í kringum skurðinn var þegar orðið mjög marið. Ég var ekki viss hve djúpur skurðurinn var, en mig grunaði sterklega að ég ætti að finna miklu meiri sársauka í upphandleggnum en ég gerði í augnarblikinu. Blóð hafði runnið niður handlegginn og það blæddi enn hressilega úr skurðinum.
 
 "Kristur," sagði ég, aðallega við sjálfa mig.
 
-"Veistu, þetta var geggjað," sagði Alec við mig þegar hann kom til baka með skyndihjálpartösku, "ég hélt að þú hefðir ekki í þér að taka svona í lurginn á einhverjum." Ég glápti reiðilega á hann, en hann settist bara aftur í sófann, sparkandi fótunum eins og spenntur krakki.
+"Veistu, þetta var geggjað," sagði Alec við mig þegar hann kom til baka með skyndihjálpartösku, "ég hélt að þú hefðir ekki í þér að lemja einhvern svona í klessu." Ég glápti reiðilega á hann, en hann settist bara aftur í sófann, sparkandi fótunum eins og spenntur krakki.
 
 "Mér sýnist þurfa að hreinsa og sauma nokkur spor. Krafturinn hennar Tattle gæti hugsanlega gefið okkur vísbendingu um hve margir saumar þetta þurfi að vera," sagði Brian hljóðlega.
 
@@ -24,13 +24,13 @@ Mesti skaðinn sýndist mér vera á vinstri upphandleggnum, þar leit út eins 
 
 Alec kvartaði, "Við tókum öll svoleiðis námskeið, Brian lét okkur öll taka alhliða kennslutíma í skyndihjálp rétt tæpri viku eftir að við stofnuðum teymið. Þvílík leiðindi, trúðu mér. Hann mun láta þig taka svoleiðis kennslutíma líka."
 
-"Ég er nú þegar búin að taka svoleiðist tíma," viðurkenndi ég, "Eitt af því fyrsta sem ég gerði." Ég hrökk við þegar ég heyrði Bitch urra, en það var bara vegna þess að Lisa var að binda bómul um eyrað á henni.
+"Ég er nú þegar búin að taka svoleiðis tíma," viðurkenndi ég, "Eitt af því fyrsta sem ég gerði." Ég hrökk við þegar ég heyrði Bitch urra, en það var bara vegna þess að Lisa var að binda bómul um eyrað á henni.
 
-Brian bara leit á mig og skartaði aftur þessu drengslega brosi. Ég leit undan, fór hálf hjá mér að strákur eins og hann gladdist yfir því sem ég sagði. Hann stóð upp og safnaði saman umbúðum af sárabindi, saumum, bómullarþurrkum, smyrsli og ýmsu öðru rusli og fór með það inn á baðherbergi.
+Brian leit á mig og skartaði aftur þessu drengslega brosi. Ég leit undan, fór hálf hjá mér að strákur eins og hann gladdist yfir því sem ég hafði að segja. Hann stóð upp og safnaði saman umbúðum af sárabindum, saumum, bómullarþurrkum, smyrsli og ýmsu öðru rusli og fór með það í fanginu inn á baðherbergi.
 
 Þegar Brian var farinn og Lisa var niðursokkin í að klára að binda um eyrað á Bitch var ég eftir með Alec. Til að reyna að koma á samræðum enn einu sinni sagði ég, "Alec, þú ætlaðir að segja mér hvað þú gerir. Þú notar skikkjunafnið Regent, rétt?"
 
-"Nafnið er löng saga, en það sem ég geri er þetta." Hann leit um öxl á Brian sem var að koma frá baðherberginu með blauta handþurrku í höndunum. Hann hrasaði skyndilega og datt í gólfið.
+"Nafnið er löng saga, en það sem ég geri er þetta." Hann leit um öxl á Brian sem var að koma frá baðherberginu með blauta handþurrku í höndunum. Hann missti jafnvægið skyndilega og datt í gólfið.
 
 "Vel gert, þú tekur þig vel út fyrir framan nýju stelpuna, klaufinn þinn!" sagði Alec háðslega við liðsfélaga sinn, hlæjandi. Þakklát spennufallinu átti ég erfitt með annað en að hlæja líka. Á meðan Alec hélt áfram að hlæja stóð Brian upp og hljóp að Alec og tók hann í höfuðlás og sló nokkrum sinnum í öxlina á honum. Þessar líkamsmeiðingar juku hláturinn frá Alec milli þess sem hann kveinkaði sér við höggin í öxlina.
 
@@ -54,7 +54,7 @@ Brian brosti, "Ég bætti því þar inn sjálfur. Það er ekki rangt, en það
 
 Lisa bætti við, "Það er ekki bara heyrn. Myrkrið lokar líka á rafbylgjur og deyfir mjög áhrif geislunar."
 
-"Það segir krafturinn hennar Lisu allavega. Ég hef ekki fengið mörg tækifæri til að prófa og sannreyna það. Hef ekki haft not fyrir það hingað til," sagði Brian. Hann rétti upp höndina og bjó til handfylli af myrkrinu. Það var eins og reykur, en svo algjörlega svart að það sást engin áferð á því. Eiginlega var eins og einhver hefði notað skurðarhníf á raunvöruleikann og myrkrið væri það sem eftir þegar annað væri skorið í burtu. Ég náði ekki einu sinni að gera mér grein fyrir lögun þess nema ef ég færði mig til að breyta um sjónarhorn. Jafnvel þá var það erfitt þar sem myrkrið breyttist og bugðaðist eins og gumsið í lavalampa, það var mjög erfitt að átta sig á formi myrkursins.
+"Það segir krafturinn hennar Lisu allavega. Ég hef ekki fengið mörg tækifæri til að prófa og sannreyna það. Hef ekki haft not fyrir það hingað til," sagði Brian. Hann rétti upp höndina og bjó til handfylli af myrkrinu. Það var eins og reykur, en svo algjörlega svart að það sást engin áferð á því. Eiginlega var eins og einhver hefði notað skurðarhníf á raunvöruleikann og myrkrið væri það sem eftir stóð þegar allt hitt hafði verið skorið burt. Ég náði ekki einu sinni að gera mér grein fyrir lögun þess nema ef ég færði mig til að breyta um sjónarhorn. Jafnvel þá var það erfitt þar sem myrkrið breyttist og bugðaðist eins og bráðfljótandi hraun í lavalampa, það var mjög erfitt að átta sig á formi myrkursins.
 
 Meira myrkur flæddi stöðugt úr höndinni hans, reis upp og fór að þekja topp rýmisins. Á endanum huldi myrkrið hliðargluggana í toppi loftsins og öll loftljósin, rýmið varð mikið myrkara.
 
@@ -74,7 +74,7 @@ Brian spurði mig, "Ertu tímabundin, þarftu að fara að koma þér einhvert?"
 
 "Staldra við?" spurði Brian.
 
-Ég leit á Bitch. Hún sat við borðið fyrir aftan einn sófann og leit út fyrir að vera í algjöru móki, með blóðugt sárabindi yfir eyranu, storknaða blóðlínu frá nefinu niður á höku, henni virtist vera flökurt, líða talsvert illa jafnvel. Með hana í slíku ástandi fannst mér ekki stafa neinn ótti af henni. Að staldra við þýddi líka að ég gæti kynnt mér nokkra hluti betur og jafnvel komist að einhverju fleiru. Ég hafði að auki saknað félagslegrar umgengni við fólk - jafnvel þó það var undir fölskum forsendum með hóp sem innihélt einn greinilegan sósíópata. Þetta hafði verið erfiður dagur. Að slappa bara af hljómaði vel.
+Ég leit á Bitch. Hún sat við borðið fyrir aftan einn sófann og leit út fyrir að vera í algjöru móki, með blóðugt sárabindi yfir eyranu, storknaða blóðlínu frá nefinu niður á höku, henni virtist vera flökurt, líða talsvert illa jafnvel. Með hana í slíku ástandi fannst mér ekki stafa neinn ótti af henni. Að staldra við þýddi líka að ég gæti kynnt mér nokkra hluti betur og jafnvel komist að einhverju fleiru. Ég hafði að auki saknað félagslegrar umgengni við fólk - jafnvel þó það var undir fölskum forsendum með hóp sem innihélt einn greinilegan sósíópata. Þetta hafði verið erfiður dagur. Að taka því aðeins rólega hljómaði vel.
 
 "Veistu," sagði ég, "Já, ég held ég væri til í það."
 
@@ -92,9 +92,9 @@ Brian spurði mig, "Ertu tímabundin, þarftu að fara að koma þér einhvert?"
 
 Það var þögn á línunni um tíma.
 
-"Taylor, ef það er einhver að þvinga þig til að hringja þetta símtal ... einhver úr skólanum eða annarstaðar, segðu mér að allt sé í lagi. Ef þú ert ekki í vandræðum segðu mér fullt nafn móður þinnar."
+"Taylor, ef einhver er að þvinga þig til að hringja þetta símtal ... einhver úr skólanum eða annarstaðar, segðu mér þá að allt sé í lagi. Ef þú ert ekki í vandræðum segðu mér fullt nafn móður þinnar."
 
-Ég fór hjá mér um tíma. Var það svona svakalega óvenjulegt að ég vildi hanga með fólki? Ég vissi að pabbi var að þessu af því að honum var annt um mig og öryggi mitt, en hvernig hann var farinn að haga sér fannst mér samt fáránlegt.
+Ég fór hjá mér um stund. Var það svona svakalega óvenjulegt að ég vildi hanga með fólki? Ég vissi að pabbi var að þessu vegna þess að honum var annt um mig og öryggi mitt, en hvernig hann var farinn að haga sér fannst mér samt fáránlegt.
 
 "Annette Rose Hebert," sagði ég við hann, "Í alvöru pabbi, ég hef það gott."
 
