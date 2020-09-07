@@ -88,4 +88,6 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 
 ...
 
-![Já Alexandria það er þessi spyrill þarna!](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Hafðu þetta ormurinn þinn.")
+![Hafðu þetta ormurinn þinn.](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Já Alexandria það er þessi spyrill þarna.")
+
+En grínlaust, þessi saga er mjög löng, um 1.680.000 orð, og ég efast um að ein manneskja nái að þýða hana alla í frítíma sínum.
