@@ -224,4 +224,4 @@ Victoria leit um öxl á þrjótinn, skríðandi um með máttlausa fæturna, "E
 
 ---
 
-[Fyrri hluti](Ormur-02.09.md) - Næsti kafli
+[Fyrri hluti](Ormur-02.09.md) - [Næsti kafli](../03/Ormur-03.01-Æsingur.md)
