@@ -18,13 +18,13 @@ Mesti skaðinn sýndist mér vera á vinstri upphandleggnum, þar leit út eins 
 
 "Allt í lagi," samþykkti ég.
 
-Ég mundi seint lýsa því að fá saumuð spor sem einhverja tengsla upplifun, en Bitch var meira og minna hljóðlát í gegnum ferlið. Við vorum báðar látnar setjast niður og sagt að sitja stilltar á meðan Brian hreinsaði sárin og saumaði saman gapandi skurðinn í upphandleggnum mínum og skurðinn sem hafði opnast upp við eyrað á Bitch. Brian krafðist þess að ég tæki inn tvær Tylenol verkjastillandi töflur, þrátt fyrir að ég segðist bara finna fyrir smá doða í svöðusárinu. En ég hlýddi. Ég hafði aldrei verið hrifin af því að taka verkjalyf, og í þau skipti sem ég hafði tekið verkjalyf fannst mér þau ekki hafa gert neitt gagn.
+Ég mundi seint lýsa því að fá saumuð spor sem einhverri tengsla upplifun, en Bitch var blessunarlega meira og minna hljóðlát í gegnum ferlið. Við vorum báðar látnar setjast niður og sagt að sitja stilltar á meðan Brian hreinsaði sárin og saumaði saman gapandi svöðusárið í upphandleggnum mínum og brosandi skurðinn sem hafði opnast upp við eyrað á Bitch. Brian krafðist þess að ég tæki inn tvær Tylenol verkjastillandi töflur, þrátt fyrir að ég segðist bara finna fyrir smá doða í svöðusárinu. Ég hlýddi þó. Ég hafði aldrei verið hrifin af því að taka verkjalyf, og í þau skipti sem ég hafði tekið verkjalyf fannst mér þau ekki hafa gert neitt gagn.
 
-"Svo þú tókst námskeið í skyndihjálp," sagði ég, til að reyna að rjúfa þögnina einhverjum samræðum.
+"Svo þú ákvaðst að læra skyndihjálp," sagði ég, til að reyna að rjúfa þögnina með einhverjum samræðum.
 
-Alec kvartaði, "Við tókum öll svoleiðis námskeið, Brian lét okkur öll taka alhliða kennslutíma í skyndihjálp rétt tæpri viku eftir að við stofnuðum teymið. Þvílík leiðindi, trúðu mér. Hann mun láta þig taka svoleiðis kennslutíma líka."
+Alec kvartaði, "Við kunnum öll skyndihjálp, Brian lét okkur öll taka alhliða kennslutíma í skyndihjálp rétt tæpri viku eftir að við stofnuðum teymið. Þvílík leiðindi, trúðu mér. Hann mun láta þig fara á svoleiðis líka."
 
-"Ég er nú þegar búin að taka svoleiðis tíma," viðurkenndi ég, "Eitt af því fyrsta sem ég gerði." Ég hrökk við þegar ég heyrði Bitch urra, en það var bara vegna þess að Lisa var að binda bómul um eyrað á henni.
+"Ég er nú þegar búin að taka svoleiðis tíma," viðurkenndi ég, "Eitt af því fyrsta sem ég gerði." Ég hrökk við þegar ég heyrði Bitch urra, en það var bara vegna þess að Lisa var að binda bómull um eyrað á henni.
 
 Brian leit á mig og skartaði aftur þessu drengslega brosi. Ég leit undan, fór hálf hjá mér að strákur eins og hann gladdist yfir því sem ég hafði að segja. Hann stóð upp og safnaði saman umbúðum af sárabindum, saumum, bómullarþurrkum, smyrsli og ýmsu öðru rusli og fór með það í fanginu inn á baðherbergi.
 
@@ -72,7 +72,7 @@ Brian spurði mig, "Ertu tímabundin, þarftu að fara að koma þér einhvert?"
 
 "Við gætum pantað pítsu," stakk Alec uppá. Þegar Lisa, Brian og Bitch settu öll upp svip bætti hann við, "Eða kannski eru allir búnir að fá nóg af pítsu og við ættum að panta okkur eitthvað annað."
 
-"Staldra við?" spurði Brian.
+"Staldra við?" spurði Brian, hann beindi spurningunni að mér.
 
 Ég leit á Bitch. Hún sat við borðið fyrir aftan einn sófann og leit út fyrir að vera í algjöru móki, með blóðugt sárabindi yfir eyranu, storknaða blóðlínu frá nefinu niður á höku, henni virtist vera flökurt, líða talsvert illa jafnvel. Með hana í slíku ástandi fannst mér ekki stafa neinn ótti af henni. Að staldra við þýddi líka að ég gæti kynnt mér nokkra hluti betur og jafnvel komist að einhverju fleiru. Ég hafði að auki saknað félagslegrar umgengni við fólk - jafnvel þó það var undir fölskum forsendum með hóp sem innihélt einn greinilegan sósíópata. Þetta hafði verið erfiður dagur. Að taka því aðeins rólega hljómaði vel.
 
@@ -112,4 +112,4 @@ Athygli mín var í smá stund öll á byssunni, ég missti næstum af spurningu
 
 ---
 
-[Fyrri hluti](Ormur-02.08.md) - Næsti hluti
+[Fyrri hluti](Ormur-02.08.md) - [Næsti hluti](Ormur-02.09.x.[Sjónarhorn;Victoria].md)
