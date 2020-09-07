@@ -9,13 +9,13 @@ Reyndu eftir besta megni að samræma orðaval við áðurgerðar þýðingar. E
 
 ## Flott mynd, sami bakgrunnur og á vefsíðu höfundsins, en hvaðan kemur lógóið í upphafsstafnum?
 
-Þessi scarab 'O' hringur er að mér best vitandi hönnun frá einum lesanda sögunnar. Þetta er frekari útfærsla á tilteknu tákni sem lýst er í sögunni Ward, sem er framhald af Worm. Þegar ég reyndi að rekja uppruna táknsins endaði ég á [þessum reddit þræði á /r/Parahumans frá 2017-11-18 (varúð, inniheldur hugsanlega söguspilla)](https://www.reddit.com/r/Parahumans/comments/7dt7mj/parahumansnet_favicon/) þar sem umræður voru um að skapa favicon fyrir [Parahumans.net, vefinn þar sem Wildbow birti framhaldssöguna Ward](https://www.parahumans.net/), það er ekki að sjá að Wildbow hafi kosið að nota þær útfærslur sem stungið var uppá í þræðinum, en ein uppástungan var semsagt þessi scarab 'O' hringur, sem varð fljótt mjög vinsæll meðal lesenda og er í dag lógóið sem /r/Parahumans subredditið skartar.
+Þessi scarab 'O' hringur er að mér best vitandi hönnun frá einum lesanda sögunnar. Þetta er frekari útfærsla á tilteknu tákni sem lýst er í sögunni Ward, sem er framhald af Worm. Þegar ég reyndi að rekja uppruna táknsins endaði ég á [þessum reddit þræði á /r/Parahumans frá 2017-11-18 (varúð, inniheldur hugsanlega söguspilla)](https://www.reddit.com/r/Parahumans/comments/7dt7mj/parahumansnet_favicon/) þar sem umræður voru um að skapa favicon fyrir [Parahumans.net, vefinn þar sem Wildbow birti framhaldssöguna Ward](https://www.parahumans.net/), það er ekki að sjá að Wildbow hafi kosið að nota þær útfærslur sem stungið var uppá í þræðinum, en ein uppástungan var semsagt þessi scarab 'O' hringur, sem varð fljótt mjög vinsæll meðal lesenda og er í dag lógóið sem [/r/Parahumans subredditið](https://www.reddit.com/r/Parahumans/) skartar.
 
 ## Hver vegna ekki að íslenska öll nöfn líka?
 
-Eins og getur verið gaman að koma með íslenskuð skírnöfn, skikkjunöfn, endiboðanöfn og fleira í þeim dúr þá er það klárlega mjög vandmeðfarið verk sem getur torveldað lestur og gert fólki erfitt að hoppa á milli upprunaefnisins og þýðingarinnar. Þess vegna hefur hingað til verið haldið sig við upprunaleg skírnöfn/hetjunöfn.
+Eins og getur verið gaman að koma með íslenskuð skírnöfn, skikkjunöfn, endiboðanöfn og fleira í þeim dúr þá er það klárlega mjög vandmeðfarið verk sem getur torveldað lestur og gert fólki erfitt að hoppa á milli upprunaefnisins og þýðingarinnar. Þess vegna hefur hingað til verið haldið sig við upprunaleg skírnöfn/skikkjunöfn.
 
-Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar fyrir bæði skírnöfn og hetjunöfn, hér fyrir neðan eru nokkrar slíkar hugmyndir.
+Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar fyrir bæði skírnöfn og skikkjunöfn, hér fyrir neðan eru nokkrar slíkar hugmyndir.
 
 ### Skírnöfn
 
@@ -37,7 +37,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Taylor Hebert | Tara Hallfjörð Daníelsdóttir |
 | Victoria Dallon | Vigdís Dalmann Markúsdóttir |
 
-### Hetjunöfn
+### Skikkjunöfn
 
 | Nafn | Íslenskun |
 | --- | --- |
@@ -57,6 +57,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Hellhound | Heljarhundur |
 | Imp | Ári |
 | Jack Slash | Siggi Sveðja |
+| Legend | Snorri Edda |
 | Lung | Fáfnir |
 | Regent | Ráðanautur |
 | Scion | Baldur (Gullbaldur) |
