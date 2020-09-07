@@ -83,3 +83,9 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Behemoth | Ýmir |
 | Leviathan | Ægir |
 | Simurgh | Sígyn |
+
+## Af hverju ertu að leggja alla þessa vinnu á þig frítt? Ertu fáviti?
+
+...
+
+![Já Alexandria það er þessi spyrill þarna!](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Hafðu þetta ormurinn þinn.")
