@@ -26,12 +26,14 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Annette Rose Hebert | Annetta Rós Hallfjörð |
 | Alan Barnes | Almar Berg |
 | Brian Laborn | Brynjar Líndal |
+| Carol Dallon | Karólína Dalmann |
 | Colin Wallis | Kormákur Vilhjálms |
 | Danny Hebert | Daníel Hallfjörð, kallaður Danni |
 | Dean Stansfield | Davíð Starkaður |
 | Emma Barnes | Emma Berg Almarsdóttir |
 | Lisa Wilbourn | Lísa Viborg |
 | Madison Clements | Marsý Klemens |
+| Max Anders | Magnús Andersen Ríkharðsson |
 | Rachel Lindt | Rakel Lilliendahl |
 | Sophia Hess | Soffía Hermansen |
 | Taylor Hebert | Tara Hallfjörð Daníelsdóttir |
@@ -42,10 +44,11 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Nafn | Íslenskun |
 | --- | --- |
 | Alexandria | Alexandra |
-| Armsmaster | Vopngeir |
+| Armsmaster | Atgeir |
 | Bakuda | Búmmhildur |
 | Bitch | Tík |
 | Bonesaw | Beinsög |
+| Brandish | Barefla |
 | Clockblocker | Tímadrjóli |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
@@ -57,8 +60,10 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Hellhound | Heljarhundur |
 | Imp | Ári |
 | Jack Slash | Siggi Sveðja |
+| Kaiser | Keisari |
 | Legend | Snorri Edda |
 | Lung | Fáfnir |
+| Panacea | Panasía |
 | Regent | Ráðanautur |
 | Scion | Baldur (Gullbaldur) |
 | Shadow Stalker | Skuggabára |
@@ -91,4 +96,4 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 
 ![Hafðu þetta ormurinn þinn.](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Já Alexandria það er þessi spyrill þarna.")
 
-En grínlaust, þessi saga er mjög löng, um 1.680.000 orð, og ég efast um að ein manneskja nái að þýða hana alla í frítíma sínum.
+En grínlaust, þessi saga er mjög löng, um 1.680.000 orð, og ég efast um að ein manneskja ráði við að þýða hana alla í frítíma sínum.
