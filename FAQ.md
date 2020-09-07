@@ -39,12 +39,13 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | --- | --- |
 | Alexandria | Alexandra |
 | Armsmaster | Vopngeir |
+| Bakuda | Búmmhildur |
 | Bitch | Tík |
-| Clockblocker | Tímasjomli |
+| Clockblocker | Tímadrjóli |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
 | Gallant | Galvaskur |
-| Glory Girl | Sæmdarskvísa |
+| Glory Girl | Dýrðardís |
 | Grue | Skolli |
 | Hellhound | Heljarhundur |
 | Imp | Ári |
@@ -64,7 +65,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Endbringer | Endiboðar/Endiboði, Jötnar/Jötunn |
 | Parahuman | Paramenni |
 
-### Endiboðar
+### Endiboðar/Jötnar
 
 | Nafn | Íslenskun |
 | --- | --- |
