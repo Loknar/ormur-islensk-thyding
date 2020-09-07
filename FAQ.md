@@ -3,7 +3,7 @@
 
 ## Get ég aðstoðað með þýðingar?
 
-Endilega, settu þig bara í samband við okkur til að ganga úr skugga um að þú sért ekki að þýða kafla sem ég eða einhver er nú þegar að þýða. Skrifaðu þýðinguna í samskonar markdown snið og verið er að nota og [skelltu svo í eina pullu](https://opensource.com/article/19/7/create-pull-request-github) eða fáðu hjálp frá mér eða einhverjum við að bæta þýðingunni við.
+Endilega, settu þig bara í samband við okkur til að ganga úr skugga um að þú sért ekki að þýða kafla sem ég eða einhver er nú þegar að þýða. Skrifaðu þýðinguna í samskonar markdown snið og verið er að nota og [skelltu svo í eina pullu](https://opensource.com/article/19/7/create-pull-request-github) eða fáðu hjálp frá mér eða einhverjum við að bæta þýðingunni við ef þér finnst yfirþyrmandi að koma þér inn í notkun á útgáfustjórnunartólinu `git` og virkni Github vefsins.
 
 Reyndu eftir besta megni að samræma orðaval við áðurgerðar þýðingar. Ef til dæmis orðið 'storage closet' er þýtt sem einfaldlega 'geymsla' í kaflanum á undan, en ekki til dæmis 'geymsluherbergi' eða 'geymslukompa', reyndu þá að halda þig við orðið 'geymsla', eða stingdu upp á að breyta orðinu í kaflanum á undan í til dæmis 'geymslukompu' og notaðu svo það orð ef þú telur þig hafa góð rök fyrir því að nota það orð frekar en hitt. Taktu slíkt fram í upplýsingum með pullunni.
 
