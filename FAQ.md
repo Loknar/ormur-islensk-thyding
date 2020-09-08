@@ -49,7 +49,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Bitch | Tík |
 | Bonesaw | Beinsög |
 | Brandish | Barefla |
-| Clockblocker | Tímadrjóli |
+| Clockblocker | Klokkblokker |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
 | Gallant | Galvaskur |
@@ -71,7 +71,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Skitter | Trítla |
 | Sundancer | Sólína |
 | Tattletale | Blaðurspjalla |
-| Trickster | Klemmi |
+| Trickster | Bragðarefur |
 | Weaver | Spinna |
 
 ### Orð
@@ -79,6 +79,8 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Orð | Íslenskun |
 | --- | --- |
 | Cape | Skikkja |
+| Docs | Bryggjuhverfið |
+| Downtown | Miðbærinn |
 | Endbringer | Endiboðar/Endiboði, Jötnar/Jötunn |
 | Parahuman | Paramenni |
 
