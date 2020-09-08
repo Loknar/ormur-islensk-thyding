@@ -1,6 +1,6 @@
 ### Aðdróttun 2.9.x - Sjónarhorn; Victoria
 
-Það voru mjög fáir hlutir, að mati Victoriu Dallon, sem voru svalari en að geta flogið. Ósýnilegi orkuskjöldurinn sem huldi líkama hennar nokkra millimetra utan við húð og föt gerði það enn betra. Orkuskjöldurinn varði hana fyrir mestu vindkælingunni en lét hana samt finna aðeins fyrir vindinum á húð hennar og hári. Pöddur klesstust ekki við andlitið á henni eins og á framrúðu á bíl, jafnvel þegar hún flaug á allt að hundrað og þrjátíu kílómetra hraða á klukkustund.
+Það voru mjög fáir hlutir, að mati Victoriu Dallon, sem voru svalari en að geta flogið. Ósýnilegi orkuskjöldurinn sem huldi líkama hennar nokkra millimetra utan við húð og föt gerði það enn betra. Hann varði hana fyrir mestu vindkælingunni en lét hana samt finna aðeins fyrir vindinum á húð hennar og hári. Pöddur klesstust ekki við andlitið á henni eins og á framrúðu á bíl, jafnvel þegar hún flaug á allt að hundrað og þrjátíu kílómetra hraða á klukkustund.
 
 Hún kom auga á skotmarkið sitt og tók skarpa dýfu í átt að jörðinni, aukandi hraðann þar sem aðrir hefðu kosið að minnka hann. Hún lenti á malbikinu af slíku afli að sprungur mynduðust og malbikstægjur flugu upp í loftið, hún lenti á hné, fæti og öðrum handleggnum fram reiddum. Hún hélt þeirri stöðu í smá stund og leyfði liðuðu hárinu og hvítri skikkjunni að flagsa í vindinum sem hafði myndast við dýfuna hennar. Hún mætti augum andstæðings síns með stálharðri störu.
 
@@ -28,7 +28,7 @@ Hún flaug í átt til hans og greip með annarri í kragann hans. Í smá stund
 
 Þess í stað sveif hún með hann upp og staðnæmdist. Þau voru nógu hátt yfir jörðinni til að honum liði illa með hæðina. Ruslagámurinn, hálftómur, var beint fyrir neðan hann en hún efaðist um að hann veitti öðru en henni einni athygli.
 
-"Ég held að það sé öruggt að álykta að þú sért meðlimur í Empire Eighty-Eight," sagði hún og starði í augun á honum með grjótharðri störu, "eða í það minnsta átt einhverja vini sem eru meðlimir. Svo hér er það sem er að fara að gerast. Þú munt segja mér allt sem EEE samtökin þín hafa verið að dunda, eða ég mun brjóta handleggi þína og fætur og svo muntu segja mér það."
+"Ég held að það sé öruggt að álykta að þú sért meðlimur í Empire Eighty-Eight," sagði hún og horfði í augun á honum með grjótharðri störu, "eða í það minnsta átt einhverja vini sem eru meðlimir. Svo hér er það sem er að fara að gerast. Þú munt segja mér allt sem EEE samtökin þín hafa verið að dunda, eða ég mun brjóta handleggi þína og fætur og svo muntu segja mér það."
 
 Á meðan hún talaði skrúfaði hún upp styrkleikann á árunni sinni. Hún vissi að það virkaði þegar hann byrjaði að sprikla til að forðast augnaráð hennar.
 
@@ -42,25 +42,25 @@ Leitt að ótti skyldi hafa svona misjöfn áhrif á fólk. Þetta tiltekna skí
 
 "Sleiktu loðnu sveittu kúlurnar mínar," urraði hann, hrækti á hana og bætti við, "Tussa."
 
-Hún kastaði honum frá sér. Hún hafði nægan líkamlegan styrk til að lyfta sementshrærivél í bekkpressu, þó það væri erfitt að halda jafnvægi á einhverju svo stóru og ólögulegu, jafnvel létt kast frá henni gat þýtt töluverð vegalengd. Hann flaug um þrjátíu metra áður en hann lenti á malbikinu og rann eftir því í tíu metra til viðbótar.
+Hún kastaði honum frá sér. Hún hafði nægan líkamlegan styrk til að lyfta sementshrærivél í bekkpressu, þó það væri erfitt að halda jafnvægi á einhverju svo stóru og ólögulegu, jafnvel létt kast frá henni gat þýtt töluverða vegalengd. Hann flaug um þrjátíu metra áður en hann lenti á malbikinu og rann eftir því í tíu metra til viðbótar.
 
-Hann lá grafkyrr svo lengi að Victoria var farin að óttast að hann hefði kannski hálsbrotnað við lendinguna og mænan hans væri farin í sundur. Henni létti þegar hann stundi og fór að reyna aumlega að staulast á fætur.
+Hann lá grafkyrr svo lengi að Victoria var farin að óttast að hann hefði kannski hálsbrotnað við lendinguna og mænan hans væri farin í sundur. Henni létti þegar hann stundi og reyndi aumlega að staulast á fætur.
 
 "Tilbúinn að tala?" kallaði hún, rödd hennar bergmálaði í húsasundinu. Hún hreyfði sig ekki frá staðnum þar sem hún hafði kastað honum en lét sig síga hægt til jarðar.
 
-Styðjandi við annan fótinn með hönd sinni staulaðist hann á fætur, lyfti hinni höndinni og gaf henni fingurinn, hóf svo að haltra í burtu.
+Styðjandi við annan fótinn með hönd sinni staulaðist hann loks á fætur, lyfti hinni höndinni og gaf henni fingurinn, hóf svo að haltra í burtu.
 
-Hvað var þessi asni eiginlega að hugsa? Hélt hann að hún myndi bara leyfa honum að fara? Að hún myndi bara leyfa honum að vopnvæða heimskulegan skort á eigin sjálfsbjargarviðleitni gegn sér? Að hún væri ekki fær um að stíga skrefið að valda honum raunvörulegan skaða? Og til að toppa allt saman, móðga hana og ætla svo að labba í burtu?
+Hvað var þessi asni eiginlega að hugsa? Hélt hann að hún myndi bara leyfa honum að fara? Að hún myndi bara leyfa honum að vopnvæða heimskulegan skort sinn á sjálfsbjargarviðleitni gegn henni? Að hún væri ekki fær um að stíga skrefið að valda honum raunvörulegum skaða? Og til að toppa allt saman, móðga hana og ætla svo bara að labba í burtu?
 
-"Þér væri hollast að óttast mig," hvæsti hún í gegnum tennurnar. Síðan sparkaði hún í ruslagáminn við hlið sér nógu fast til að senda hann fljúgandi niður húsasundið. Hann snerist hægt í loftinu á leiðinni í áttina að flýjandi manninum, snúningur og stefna gámsins breyttist lítið sem ekkert þegar hann lenti harkalega á manninum svo hann skall til hliðar og um koll. Gámurinn rann áfram á malbikinu með skerandi járnískri.
+"Þér væri hollast að óttast mig," hvæsti hún í gegnum tennurnar. Síðan sparkaði hún í ruslagáminn við hlið sér nógu fast til að senda hann fljúgandi niður húsasundið. Hann snerist hægt í loftinu á leiðinni að flýjandi manninum, snúningur og stefna gámsins breyttist lítið sem ekkert þegar hann lenti harkalega á manninum svo hann skall til hliðar og um koll. Gámurinn rann áfram á malbikinu með skerandi járnískri.
 
 Í þetta skiptið stóð maðurinn ekki aftur upp.
 
-"Djöfull," sagði hún, "Djöfull dauði drjóli." Hún flaug til hans og athugaði með púls. Hún dæsti, og hélt svo að næstu gatnamótum. Hún fann götunöfnin á skiltunum, tók upp farsíma úr beltinu sínu og hringdi.
+"Djöfull," sagði hún, "Djöfull dauði drjóli dólgur." Hún flaug til hans og athugaði á honum púlsinn. Hún dæsti, og hélt svo að næstu gatnamótum. Hún fann götunöfnin á götuskiltunum, tók upp farsíma úr beltinu sínu og hringdi.
 
 "Hæ systir, já ég fann hann. Það er, uh, eiginlega hálfpartinn vandamálið. Já. Sko, hlustaðu á mig, ég sé eftir því- þá það en getum við talað um það seinna? Já. Ég er á gatnamótum Spayder og Rock, það er svona þröngur vegur þar á milli húsanna. Niðri í bæ já. Já? Takk.
 
-Victoria fór aftur til meðvitunarlausa mannsins, athugaði púlsinn aftur og fylgdist með hvort hann hætti nokkuð að anda. Það liðu mjög langar fimm mínútur áður en systir hennar mætti á svæðið.
+Victoria fór aftur til meðvitunarlausa mannsins, athugaði púlsinn aftur og fylgdist með hvort hann væri ekki örugglega ennþá andandi. Það liðu mjög langar fimm mínútur áður en systir hennar mætti á svæðið.
 
 "Aftur, Victoria?" Röddin truflaði einbeitingu hennar.
 
@@ -94,7 +94,7 @@ Amy gretti sig og horfði á liggjandi manninn.
 
 "Ég veit að þú ert ekki hrifin af ofurhetjubransanum, en myndirðu ganga svo langt? Myndirðu gera okkur fjölskyldunni þinni það? Myndirðu gera mér það?"
 
-Amy benti á systur sína, "Það er ekki ég sem hef brotið af mér hérna. Það er ekki ég sem olli stöðunni sem er núna uppi. Það ert þú. Þú ferð yfir strikið, gengur of langt. Sem er nákvæmlega það sem fólk sem gagnrýnir New Wave óttast. Við erum ekki ríkisstyrkt. Við erum hvorki vernduð né skipulögð eða stjórnað á sama hátt og ríkisstyrktu hetjurnar. Allir vita hver við erum á bak við grímurnar. Það þýðir að við verðum að taka ábyrgð. Sú ábyrgð segir mér, sem meðlim af þessu teymi, að réttast í stöðunni sé að kalla til sjúkraliða og láta lögin um að leysa þetta mál."
+Amy benti á systur sína, "Það er ekki ég sem hef brotið af mér hérna. Það er ekki ég sem olli stöðunni sem er uppi núna. Það ert þú. Þú ferð yfir strikið, gengur of langt. Sem er nákvæmlega það sem fólk sem gagnrýnir New Wave óttast. Við erum ekki ríkisstyrkt. Við erum hvorki vernduð né skipulögð eða stjórnað á sama hátt og ríkisstyrktu hetjurnar. Allir vita hver við erum á bak við grímurnar. Það þýðir að við verðum að taka ábyrgð. Sú ábyrgð segir mér, sem meðlim af þessu teymi, að réttast í stöðunni sé að kalla til sjúkraliða og láta lögin um að leysa þetta mál."
 
 Victoria dró Amy skyndilega til sín og famðaði hana. Amy streittist á móti í eitt andartak en gaf svo eftir og lét hendur sínar falla niður með síðum.
 
@@ -170,7 +170,7 @@ Amy snerti hann. Hann slakaði aftur á og byrjaði svo að tala.
 
 "Hvers vegna?" spurði Victoria.
 
-"Þessi gaur, Coil. Veit ekki hvaða krafta hann hefur, en það er eins og hann sé með sinn eigin einkaher. Fyrrum herþjónustuaðilar margir þeirra. Minnst fimmtíu sagði Kaiser, og hver og einn þeirra er vopnaður bestu græjum sem eru í boði. Brynjurnar þeirra eru léttar en sterkari en kevlar. Þú skýtur þá, þeir standa upp aftur ómeiddir innan nokkurra sekúndna. Ef þú skýtur grís í kevlar vesti geturðu allavega verið nokkuð viss um að brjóta nokkur rifbein. En það er ekki það sem er það skrýtnasta í þessu. Þetta lið? Þeir eru með einhverskonar leysigeisla á hríðskotabyssunum sínum. Ef byssukúlur duga ekki, ef þeir eru á eftir fólki í skjóli, þá skjóta þeir þessum fjólubláu leysigeisla sem bræðir sig í gegnum stál. Tæta sig í gegnum hvað sem það er sem þú ert að fela þig bakvið og brenna sig í gegnum þig líka."
+"Þessi gaur, Coil. Veit ekki hvaða krafta hann hefur, en það er eins og hann sé með sinn eigin einkaher. Fyrrum herþjónustuaðilar margir þeirra. Minnst fimmtíu sagði Kaiser, og hver og einn þeirra er vopnaður bestu græjum sem eru í boði. Brynjurnar þeirra eru léttar en sterkari en kevlar. Þú skýtur þá, þeir standa upp aftur ómeiddir innan nokkurra sekúndna. Ef þú skýtur grís í kevlar vesti geturðu allavega verið nokkuð viss um að brjóta nokkur rifbein. En það er ekki það sem er það skrýtnasta í þessu. Þetta lið? Þeir eru með einhverskonar leysigeisla á hríðskotabyssunum sínum. Ef byssukúlur duga ekki, ef þeir eru á eftir fólki í skjóli, þá skjóta þeir þessum fjólubláu leysigeislum sem bræða sig í gegnum stál. Tæta sig í gegnum hvað sem þú felur þig bakvið og brenna sig í gegnum þig líka."
 
 "Já, við vitum af honum. Aðferðir hans virðast mjög kostnaðarsamar." sagði Victoria, "Þaulþjálfaðir hermenn, með háþróaðan vopnabúnað."
 
