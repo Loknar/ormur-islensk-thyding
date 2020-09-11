@@ -69,7 +69,9 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Kaiser | Keisari |
 | Legend | Snorri Edda |
 | Lung | Fáfnir |
+| Narwhal | Náhveli |
 | Panacea | Panasía |
+| Parian | Dúkkulísa |
 | Regent | Ráðanautur |
 | Scion | Baldur (Gullbaldur) |
 | Shadow Stalker | Skuggabára |
