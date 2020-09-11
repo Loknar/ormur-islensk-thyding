@@ -1,6 +1,6 @@
 ### Æsingur 3.3
 
-"Nei," sagði Brian, "þetta er lveg galin hugmynd."
+"Nei," sagði Brian, "þetta er alveg galin hugmynd."
 
 Lisa var enn með símann í hendinni. Bitch stóð rétt fyrir aftan hana og klæðnaðurinn hennar var gjörsamlega gagnstæður við klæðnað Lisu sem var í gallabuxum, peysu og með hárið bundið í tagl, Bitch var í sömu rytjóttu buxunum og daginn áður og hermannajakkanum sínum, með hárið úfið þrátt fyrir hve stuttklippt það var. Minnsti hundurinn, eineygði eineyrði terrierinn, tölti á eftir henni.
 
