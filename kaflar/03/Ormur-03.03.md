@@ -4,7 +4,7 @@
 
 Lisa var enn með símann í hendinni. Bitch stóð rétt fyrir aftan hana og klæðnaðurinn hennar var gjörsamlega gagnstæður við klæðnað Lisu sem var í gallabuxum, peysu og með hárið bundið í tagl, Bitch var í sömu rytjóttu buxunum og daginn áður og hermannajakkanum sínum, með hárið úfið þrátt fyrir hve stuttklippt það var. Minnsti hundurinn, eineygði eineyrði terrierinn, tölti á eftir henni.
 
-"Koma svo," sagði Lisa af innlifun, "þetta er svona innvígsla fyrir illkvittna glæpamenn eins og okkur."
+"Koma svo," sagði Lisa af innlifun, "þetta yrði svona einskonar innvígsla fyrir illskeitta glæpamenn eins og okkur."
 
 "Að ræna banka er svo heimskulegt. Við höfum rætt þetta áður," Brian lokaði augunum og kleip í nefbrúnina milli augnanna, "veist hver meðalgróðinn er af því að brjótast inn í banka?"
 
@@ -214,17 +214,17 @@ Tattletale hristi höfuðið, "Kraftar hennar og Brians virðast hafa einhver un
 
 "Ég er með þá," viðurkenndi ég, "helling af þeim, og svo framvegis. En ég er ekki að fara að láta það stöðva mig. Ég ætla með ykkur."
 
-"Frábært," svaraði Brian, "svo við höfum restina af deginum í dag og á morgun til að undirbúa okkur. Taylor? Þú getur hitt mig á morgunskokkinu þínu í fyrramálið. Ég verð með farsíma kláran fyrir þig. Þú getur sent Lisu smáskilaboð með hverju því sem þú telur þig þurfa, eins og þessi vopn sem þú nefndir við mig. Flettu upp týpum og vörumerkjum fyrirfram ef þú vilt eitthvað sérstakt."
+"Frábært," svaraði Brian, "svo við höfum restina af deginum í dag og á morgun til að undirbúa okkur. Taylor? Þú getur hitt mig eftir hádegi í skokkinu þínu. Ég verð með farsíma kláran fyrir þig. Þú getur sent Lisu smáskilaboð með hverju því sem þú telur þig þurfa, eins og þessi vopn sem þú nefndir við mig. Flettu upp týpum og vörumerkjum fyrirfram ef þú vilt eitthvað sérstakt."
 
 "Hvað er númerið hennar?" spurði ég.
 
-"Ég verð búinn að setja það í minnið á símanum áður en ég læt þig fá hann. Lisa? Þú staðfestir við stjórann að við tökum verkefnið að okkur, talaðu við hann varðandi hina hlutina."
+"Ég verð búinn að setja það í minnið á símanum áður en ég læt þig fá hann. Lisa? Þú staðfestir við stjórann að við tökum verkefnið að okkur, þú talar síðan við hann varðandi hina hlutina."
 
 "Geri það."
 
-"Ef það er ekki fleira þá segi ég að við séum hér með búin að skipuleggja bankarán fyrir hádegi," sagði Lisa og glotti. Ég leit á stafrænu klukkuna sem var undir sjónvarpinu. Jú mikið rétt, klukkan var einungis hálf ellefu.
+"Ef það er ekki fleira þá segi ég að við séum hér með búin að skipuleggja bankarán fyrir hádegi," bætti Lisa við og glotti. Ég leit á stafrænu klukkuna undir sjónvarpinu. Jú mikið rétt, klukkan var einungis rétt rúmlega hálf ellefu.
 
-Ég gat ekki annað en velt fyrir mér hvort það væri góður hlutur eða mjög slæmur hlutur.
+Ég gat ekki annað en velt fyrir mér hvort það væri gott eða hugsanlega mjög slæmt.
 
 ---
 
