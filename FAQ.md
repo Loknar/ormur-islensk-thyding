@@ -7,6 +7,12 @@ Endilega, settu þig bara í samband við okkur til að ganga úr skugga um að 
 
 Reyndu eftir besta megni að samræma orðaval við áðurgerðar þýðingar. Ef til dæmis orðið 'storage closet' er þýtt sem einfaldlega 'geymsla' í kaflanum á undan, en ekki til dæmis 'geymsluherbergi' eða 'geymslukompa', reyndu þá að halda þig við orðið 'geymsla', eða stingdu upp á að breyta orðinu í kaflanum á undan í til dæmis 'geymslukompu' og notaðu svo það orð ef þú telur þig hafa góð rök fyrir því að nota það orð frekar en hitt. Taktu slíkt fram í upplýsingum með pullunni.
 
+## Hvað geri ég ef eitthvað týnist alveg í þýðingu?
+
+Sumt þýðist einfaldlega illa þar sem eitthvað veltur þungt á orðalagi, eins og að rugla saman tábergi og hæl, þar sem á ensku eru tábergin iðulega kölluð "balls of your feet" eða boltar fótanna þinna. Verð að vera sammála Taylor að þetta er fáránlegt orð fyrir táberg og ráðlegg enskumælandi fólki að tileinka sér fallega enska tökuorðið úr íslensku "toeberg". Miklu skýrara og fallegra en "balls of your feet".
+
+En já, fer í raun mjög eftir innihaldinu, í sumum tilfellum getur verið í lagi þó eitthvað tapi bitinu aðeins í þýðingu, í öðrum ef til vill ekki og þá þarf ef til vill að reyna að vera hugmyndaríkur án þess að hverfa of langt frá upprunaefninu.
+
 ## Flott mynd, sami bakgrunnur og á vefsíðu höfundsins, en hvaðan kemur lógóið í upphafsstafnum?
 
 Þessi scarab 'O' hringur er að mér best vitandi hönnun frá einum lesanda sögunnar. Þetta er frekari útfærsla á tilteknu tákni sem lýst er í sögunni Ward, sem er framhald af Worm. Þegar ég reyndi að rekja uppruna táknsins endaði ég á [þessum reddit þræði á /r/Parahumans frá 2017-11-18 (varúð, inniheldur hugsanlega söguspilla)](https://www.reddit.com/r/Parahumans/comments/7dt7mj/parahumansnet_favicon/) þar sem umræður voru um að skapa favicon fyrir [Parahumans.net, vefinn þar sem Wildbow birti framhaldssöguna Ward](https://www.parahumans.net/), það er ekki að sjá að Wildbow hafi kosið að nota þær útfærslur sem stungið var uppá í þræðinum, en ein uppástungan var semsagt þessi scarab 'O' hringur, sem varð fljótt mjög vinsæll meðal lesenda og er í dag lógóið sem [/r/Parahumans subredditið](https://www.reddit.com/r/Parahumans/) skartar.
