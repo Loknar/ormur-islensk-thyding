@@ -148,8 +148,8 @@ Brian yppti öxlum, "Hann biður okkur að vinna verkefni, en oftast eru það h
 
 "Hverskonar verkefni lætur hann okkur vinna?" spurði ég.
 
-Rödd Lisu rétt fyrir aftan mig skaut mér skelk í bringu, "Eins og þetta. Klæðið ykkur í sokka kæru strákar og stelpur því við erum að fara að ræna banka."
+Rödd Lisu rétt fyrir aftan mig skaut mér skelk í bringu, "Verkefni eins og þetta. Klæðið ykkur í sokka kæru strákar og stelpur því við erum að fara að ræna banka."
 
 ---
 
-[Fyrri hluti](Ormur-03.01-Æsingur.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.01-Æsingur.md) - [Næsti hluti](Ormur-03.03.md)
