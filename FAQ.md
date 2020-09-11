@@ -1,5 +1,5 @@
 
-# FAQ: Alengar spurningar
+# FAQ: Algengar spurningar
 
 ## Get ég aðstoðað með þýðingar?
 
@@ -96,6 +96,6 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 
 ...
 
-![Hafðu þetta ormurinn þinn.](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Já Alexandria það er þessi spyrill þarna.")
+![Uppruni myndarinnar: https://www.deviantart.com/cpericardium/art/Garbage-Day-779750446](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Já Alexandria það er þessi spyrill þarna.")
 
 En grínlaust, þessi saga er mjög löng, um 1.680.000 orð, og ég efast um að ein manneskja ráði við að þýða hana alla í frítíma sínum.
