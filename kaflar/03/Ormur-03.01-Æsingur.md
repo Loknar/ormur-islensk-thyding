@@ -130,4 +130,4 @@ Með hendur mínar ofan í vösum fann ég fyrir tvísýnum og svikulum létti, 
 
 ---
 
-[Fyrri kafli](../02/Ormur-02.09.x.[Sjónarhorn;Victoria].md) - Næsti hluti
+[Fyrri kafli](../02/Ormur-02.09.x.[Sjónarhorn;Victoria].md) - [Næsti hluti](Ormur-03.02.md)
