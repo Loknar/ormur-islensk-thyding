@@ -11,7 +11,7 @@ Reyndu eftir besta megni að samræma orðaval við áðurgerðar þýðingar. E
 
 Sumt þýðist einfaldlega illa þar sem eitthvað veltur þungt á orðalagi, eins og að rugla saman tábergi og hæl, þar sem á ensku eru tábergin iðulega kölluð "balls of your feet" eða boltar fótanna þinna. Verð að vera sammála Taylor að þetta er fáránlegt orð fyrir táberg og ráðlegg enskumælandi fólki að tileinka sér fallega enska tökuorðið úr íslensku "toeberg". Miklu skýrara og fallegra en "balls of your feet".
 
-En já, fer í raun mjög eftir innihaldinu, í sumum tilfellum getur verið í lagi þó eitthvað tapi bitinu aðeins í þýðingu, í öðrum ef til vill ekki og þá þarf ef til vill að reyna að vera hugmyndaríkur án þess að hverfa of langt frá upprunaefninu.
+En já, fer í raun mjög eftir innihaldinu, í sumum tilfellum getur verið í lagi þó eitthvað tapi bitinu aðeins í þýðingu, í öðrum ekki og þá þarf ef til vill að reyna að vera hugmyndaríkur án þess að hverfa of langt frá upprunaefninu.
 
 ## Flott mynd, sami bakgrunnur og á vefsíðu höfundsins, en hvaðan kemur lógóið í upphafsstafnum?
 
