@@ -1,6 +1,6 @@
 ### Myndbreyting 1.4
 
-Ég fékk hroll. Nú sá ég mjög eftir því að hafa ekki orðið mér úti um einnota farsíma. Ég var ekki með vasabelti en í lagskiptri hryggjarbrynjunni á búningnum mínum hafði ég komið fyrir nokkrum bráðaofnæmispennum, blaði og penna, litlum brúsa af piparúða sem hafði áður hangið á lyklakippu og poka af kalkpúðri. Ég hefði getað komið fyrir litlum farsíma þar. Ef ég hefði gert það hefði ég getað gert alvöru hetjum viðvart um áform Lung um að ætla að ná sér niðri á einhverjum andstæðingum sínum með því að fara að skjóta börn.
+Ég fékk hroll. Nú sá ég mjög eftir því að hafa ekki orðið mér úti um óskráðan farsíma. Ég var ekki með vasabelti en í lagskiptri hryggjarbrynjunni á búningnum mínum hafði ég komið fyrir nokkrum bráðaofnæmispennum, blaði og penna, litlum brúsa af piparúða sem hafði áður hangið á lyklakippu og poka af kalkpúðri. Ég hefði getað komið fyrir litlum farsíma þar. Ef ég hefði gert það hefði ég getað gert alvöru hetjum viðvart um áform Lung um að ætla að ná sér niðri á einhverjum andstæðingum sínum með því að fara að skjóta börn.
 
 Eða það var það sem ég hafði heyrt. Ég var ekki ennþá að trúa því og snéri orðunum sem ég hafði heyrt í hausnum á mér til að reyna að finna annað samhengi sem meira vit var í. Það var ekki að ég trúði því ekki upp á Lung að gera eitthvað svona. Ég átti meira erfitt með að gera mér hugarlund um að yfir höfuð einhver gerði það.
 

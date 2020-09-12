@@ -214,7 +214,7 @@ Tattletale hristi höfuðið, "Kraftar hennar og Brians virðast hafa einhver un
 
 "Ég er með þá," viðurkenndi ég, "helling af þeim, og svo framvegis. En ég er ekki að fara að láta það stöðva mig. Ég ætla með ykkur."
 
-"Frábært," svaraði Brian, "svo við höfum restina af deginum í dag og á morgun til að undirbúa okkur. Taylor? Þú getur hitt mig eftir hádegi í skokkinu þínu. Ég verð með farsíma kláran fyrir þig. Þú getur sent Lisu smáskilaboð með hverju því sem þú telur þig þurfa, eins og þessi vopn sem þú nefndir við mig. Flettu upp týpum og vörumerkjum fyrirfram ef þú vilt eitthvað sérstakt."
+"Frábært," svaraði Brian, "svo við höfum restina af deginum í dag og á morgun til að undirbúa okkur. Taylor? Þú getur hitt mig í fyrramálið í morgunskokkinu þínu. Ég verð með farsíma kláran fyrir þig. Þú getur sent Lisu smáskilaboð með hverju því sem þú telur þig þurfa, eins og þessi vopn sem þú nefndir við mig. Flettu upp týpum og vörumerkjum fyrirfram ef þú vilt eitthvað sérstakt."
 
 "Hvað er númerið hennar?" spurði ég.
 
@@ -222,10 +222,10 @@ Tattletale hristi höfuðið, "Kraftar hennar og Brians virðast hafa einhver un
 
 "Geri það."
 
-"Ef það er ekki fleira þá segi ég að við séum hér með búin að skipuleggja bankarán fyrir hádegi," bætti Lisa við og glotti. Ég leit á stafrænu klukkuna undir sjónvarpinu. Jú mikið rétt, klukkan var einungis rétt rúmlega hálf ellefu.
+"Ef það er ekki fleira þá segi ég að við séum hér með búin fyrir hádegi að skipuleggja heilt bankarán," bætti Lisa við og glotti. Ég leit á stafrænu klukkuna undir sjónvarpinu. Jú mikið rétt, klukkan var einungis rétt rúmlega hálf ellefu.
 
 Ég gat ekki annað en velt fyrir mér hvort það væri gott eða hugsanlega mjög slæmt.
 
 ---
 
-[Fyrri hluti](Ormur-03.02.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.02.md) - [Næsti hluti](Ormur-03.04.md)
