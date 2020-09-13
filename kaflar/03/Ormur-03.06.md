@@ -68,9 +68,9 @@ Hún hélt áfram, "Sjáðu til, ég þekki þig. Hvort sem þú trúir mér eð
 
 "Lygari," sagði hún. Svo blikkaði hún mig, "Það er allt í lagi. Eftir klukkutíma verðurðu veltandi þér upp úr fjalli af peningum og hlæjandi yfir því hversu svartsýn þú varst. Ég lofa."
 
-Lisa ók sendibílnum neðar í götuna og beygði inn á bílastæði starfsmanna fyrir aftan veitingastað. Þegar hún bakkaði í bílastæðið þannig að bíllinn sneri í átt frá bankanum dró ég fram grímuna mína. Lisa gerði það sama og eyddi svo nokkrum sekúndum í að segja svarta andlitsmálningu í kringum augun svo svarti liturinn blandaðist saman við grímuna hennar. Ég hafði ekkert slíkt fyrir stafni, ég horfði taugaóstyrk í baksýnisspegilinn. Það leið eins og heil eilífð, en var líklega bara mínúta, áður en Brian lagði öðrum sendibíl í húsasund sem lá að bílastæðinu. Hann lagði bílnum hálfa leið í gegnum sundið, þvert svo að enginn annar bíll kæmist þar í gegn.
+Lisa ók sendibílnum neðar í götuna og beygði inn á bílastæði starfsmanna fyrir aftan veitingastað. Þegar hún bakkaði í bílastæðið þannig að bíllinn sneri í átt frá bankanum dró ég fram grímuna mína. Lisa gerði það sama og eyddi svo nokkrum sekúndum í að setja svarta andlitsmálningu í kringum augun svo svarti liturinn blandaðist saman við grímuna hennar. Ég hafði ekkert slíkt fyrir stafni, ég horfði taugaóstyrk í baksýnisspegilinn. Það leið eins og heil eilífð, en var líklega bara mínúta, áður en Brian lagði öðrum sendibíl í húsasund sem lá að bílastæðinu. Hann lagði bílnum hálfa leið í gegnum sundið, þvert svo að enginn annar bíll kæmist þar í gegn.
 
-Þegar ég opnaði hurðina og steig út í grenjandi rigninguna náði ég að segja orðin án þess að svelgjast á regninu, "Förum að ræna banka."
+Þegar ég opnaði hurðina og steig út í grenjandi rigninguna náði ég rétt svo að segja orðin án þess að svelgjast á ausandi regninu, "Förum að ræna banka."
 
 Lisa glotti.
 
