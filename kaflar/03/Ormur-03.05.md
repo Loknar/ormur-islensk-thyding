@@ -16,7 +16,7 @@ Hann var ekki að flýta sér að svara mér, það leið dágóð stund áður 
 
 Hann færði sig í slakari líkamsstöðu. Hann skellti stönginni á atgeirnum sínum aftan á bakið og það small fast á sinn stað. "Ef staðan er þannig þá hefurðu unnið okkur mikinn greiða. Værir þú tilbúin að koma með mér snöggvast í Protectorate höfuðstöðvarnar og veita deildinni þessar upplýsingar sem þú hefur aflað?"
 
-Hjartað mitt sökk. Að hitta Protectorate deild svæðisins, Miss Militia, Triumph, Velocity, Dauntless, Battery og Assault? Ég gat ímyndað mér viðbrögð þeirra þegar ég segði þeim frá öllu sem ég hafði komist að, frá bardaga mínum við Bitch, kannski eitthvað um bardagann minn við Lung, ef það væri í lagi gagnvart Armsmaster. Að heyra sögur frá þeim á móti.
+Hjartað mitt tók kipp. Að hitta Protectorate deild svæðisins, Miss Militia, Triumph, Velocity, Dauntless, Battery og Assault? Ég gat ímyndað mér viðbrögð þeirra þegar ég segði þeim frá öllu sem ég hafði komist að, frá bardaga mínum við Bitch, kannski eitthvað um bardagann minn við Lung, ef það væri í lagi gagnvart Armsmaster. Að heyra sögur frá þeim á móti.
 
 "Ég get það ekki."
 
