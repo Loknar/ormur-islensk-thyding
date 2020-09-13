@@ -122,4 +122,4 @@ Til Miss Militia hugsaði ég. Ekki Armsmaster.
 
 ---
 
-[Fyrri hluti](Ormur-03.04.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.04.md) - [Næsti hluti](Ormur-03.06.md)
