@@ -58,7 +58,7 @@ Hún hélt áfram, "Sjáðu til, ég þekki þig. Hvort sem þú trúir mér eð
 
 "Hver notar orð eins og doldrunga lengur?" hugsaði ég upphátt samhliða því að ég hlýddi fyrirmælum hennar. Hún svaraði mér með léttu flissi.
 
-Þegar ég áttaði mig á hvað ég var að horfa á, í gegnum ausandi rigninguna og umferðina, kyngdi ég hart. Þetta var yfir tólf hæða steinsteypt háhýsi, með kastalavirki á þökum og svölum, óhugnarlegar ufsagrýlur á hinum ýmsu hliðum og járnteina fyrir öllum gluggum. Aðalinngangurinn var með stórar steintröppur fyrir framan, svolítið eins og á stóru dómshúsunum, með styttur af prjónandi hrossum með mikið flagsandi fax sitthvoru megin við tröppurnar. Nafnið var greipt í steinvegginn fyrir ofan aðalinnganginn. Brockton Bay Seðlabankinn. Algjört kastalavirki.
+Þegar ég áttaði mig á hvað ég var að horfa á, í gegnum ausandi rigninguna og umferðina, kyngdi ég hart. Þetta var yfir tólf hæða steinsteypt háhýsi, með kastalavirki á þökum og svölum, óhugnarlegar ufsagrýlur á hinum ýmsu hliðum og járnteina fyrir öllum gluggum. Aðalinngangurinn var með stórar steintröppur fyrir framan, svolítið eins og á stóru dómshúsunum, með styttur af prjónandi hrossum með mikið flagsandi fax sitthvoru megin við tröppurnar. Nafnið var greipt í steinvegginn fyrir ofan aðalinnganginn. Brockton Bay Seðlabankinn. Rammgerður kastali.
 
 "Eftir tæpan hálftíma eða svo verðum við á leið burt héðan, tugþúsundum ríkari en þegar við komum, með adrenalínið flæðandi í æðum okkar," hvíslaði Lisa svo ég rétt svo heyrði, "Segðu mér nú. Sérðu það fyrir þér?"
 
@@ -70,7 +70,7 @@ Hún hélt áfram, "Sjáðu til, ég þekki þig. Hvort sem þú trúir mér eð
 
 Lisa ók sendibílnum neðar í götuna og beygði inn á bílastæði starfsmanna fyrir aftan veitingastað. Þegar hún bakkaði í bílastæðið þannig að bíllinn sneri í átt frá bankanum dró ég fram grímuna mína. Lisa gerði það sama og eyddi svo nokkrum sekúndum í að setja svarta andlitsmálningu í kringum augun svo svarti liturinn blandaðist saman við grímuna hennar. Ég hafði ekkert slíkt fyrir stafni, ég horfði taugaóstyrk í baksýnisspegilinn. Það leið eins og heil eilífð, en var líklega bara mínúta, áður en Brian lagði öðrum sendibíl í húsasund sem lá að bílastæðinu. Hann lagði bílnum hálfa leið í gegnum sundið, þvert svo að enginn annar bíll kæmist þar í gegn.
 
-Þegar ég opnaði hurðina og steig út í grenjandi rigninguna náði ég rétt svo að segja orðin án þess að svelgjast á ausandi regninu, "Förum að ræna banka."
+Þegar ég opnaði hurðina og steig út í grenjandi rigninguna náði ég rétt svo að segja orðin án þess að svelgjast á þeim, "Förum að ræna banka."
 
 Lisa glotti.
 
