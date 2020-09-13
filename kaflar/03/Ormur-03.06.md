@@ -6,7 +6,7 @@ Stanslaus úrkoman dundi á sendibílnum sem Lisa ók. Rigningin yfirgnæfði al
 
 "Ég held," byrjaði ég, "að þetta sé töluvert nær alvöru löggu og bófa en einhverjum leikskólaleik."
 
-"Nei nei. Hlustaðu á mig. Fullorðið fólk hlaupandi um klætt í búninga? Skáldandi upp þykjustunni nöfn á sig og aðra? Þetta er fáránlegt og við vitum að þetta er fáránlegt, jafnvel þó við viðurkennum það almennt ekki. Það eru skikkjur eins og ég og þú, sem förum á stjá í búningunum okkar og það er gaman. Kannski höfum við einhverjar stefnur eða markmið, en í lok dagsins snýst þetta að mestu um að krydda tilveruna, fá smá útrás og lifa öðru lífi. Svo eru það klikkhausarnir. Þau sem eru með eitthvað laust í kollinum á sér, mögulega hættuleg ef þau hafa ekkert til að halda aftur af sér. Fólkið sem tekur þessu öllu of alvarlega, og þau sem þú vilt ekki lenda upp á kant við, jafnvel þó þau hefðu enga krafta. Lung, Oni Lee, Heartbreaker," hún þagnaði í smá, "Bitch."
+"Nei nei. Hlustaðu á mig. Fullorðið fólk hlaupandi um klætt í búninga? Skáldandi upp þykjustunni nöfn á sig og aðra? Þetta er fáránlegt og við vitum að þetta er fáránlegt, jafnvel þó við viðurkennum það almennt ekki. Það eru skikkjur eins og ég og þú, sem förum á stjá í búningunum okkar og höfum gaman. Kannski höfum við einhverjar stefnur eða markmið, en í lok dagsins snýst þetta að mestu um að krydda tilveruna, fá smá útrás og lifa öðru lífi. Svo eru það klikkhausarnir. Þau sem eru með eitthvað laust í kollinum á sér, mögulega hættuleg ef þau hafa ekkert til að halda aftur af sér. Fólkið sem tekur þessu öllu of alvarlega, og þau sem þú vilt ekki lenda upp á kant við, jafnvel þó þau hefðu enga krafta. Lung, Oni Lee, Heartbreaker," hún þagnaði í smá, "Bitch."
 
 Ég jánkaði.
 
@@ -14,11 +14,11 @@ Stanslaus úrkoman dundi á sendibílnum sem Lisa ók. Rigningin yfirgnæfði al
 
 "Endiboðarnir," bætti ég við.
 
-Lisa þagnaði, "Akkúrat. En þú verður að átta þig á, níuíu prósent af öllu skikkjufárinu sem er í gangi? Tilheyrir fyrsta hópnum. Fullorðið fólk í búningum sem spilar harðkjarna snertilöggu og bófa með stórskemmtilega krafta og önnur leikföng. Þetta hugarfar á við fólk án krafta líka. Eins og ég sé það, að vera með ofurhetjur á einhverjum stað eða í einhverri borg er svolítið eins og að vera með íþróttalið. Fólk finnur til löngunar til að hvetja þau, þau skapa vinsælt afþreyingarefni sem snýst ekki um styrjaldir eða vatnakreppu eða hvaðeina, þau skapa söluvörur fyrir ferðamenn ... allt góðláta hlutir sem ríkið elskar. En hvaða fjör er að hafa lið ef það er enginn andstæðingur?"
+Lisa þagnaði, "Akkúrat. En þú verður að átta þig á, níutíu prósent af öllu skikkjufárinu sem er í gangi? Tilheyrir fyrsta hópnum. Fullorðið fólk í búningum sem spilar harðkjarna snertilöggu og bófa með stórskemmtilega krafta og önnur leikföng. Þetta hugarfar á við um fólk án krafta líka. Eins og ég sé það, að vera með teymi ofurhetja á einhverjum stað eins og í einhverri borg er svolítið eins og að vera með íþróttalið. Fólk finnur til löngunar að hvetja þau áfram eins og klapplið íþróttaliða, þau skapa vinsælt afþreyingarefni sem snýst ekki um styrjaldir eða vatnskreppu eða eitthvað álíka niðurdrepandi, þau skapa söluvörur fyrir ferðamenn ... allt góðláta hlutir sem ríkisstjórnin elskar. En hvaða fjör er að vera með lið ef það hefur enga andstæðinga?"
 
-"Sem er hvar við komum inn," stakk ég inn, giskandi hvert hún væri að fara.
+"Sem er þar sem við komum inn," stakk ég inn, giskandi hvað hún væri að fara með þessu.
 
-"Nákvæmlega. Þegar öllu er á botninn hvolft? Við erum ekki að valda einhverjum miklum harmleikjum. Eignatjón, þjófnaður. Stöku óbreyttur borgari meiðist ef hann er ekki nógu snöggur að koma sér undan. En tryggingagreiðslur dekka svoleiðis og fólk situr ekki eftir eitthvað mikið verr en fyrir. Eignatjónið er dekkað og þau fáu slösuðu eignast góða sögu að segja við kaffivélina. Borgin fær tekjur á óbeinan hátt, frá merkjavarningi, ferðaþjónustu og auknum lífsgæðum sem fylgja því að vera spennandi borg."
+"Nákvæmlega. Þegar öllu er á botninn hvolft? Við erum ekki að neinu ráði að valda einhverjum harmleikjum. Eignatjón, þjófnaður. Stöku óbreyttur borgari kannski slasast ef hann er ekki nógu snöggur að koma sér undan. En tryggingafélögin dekka svoleiðis og fólk situr ekki eftir verr statt en áður. Eignatjónið er dekkað og þau fáu slösuðu eignast góða sögu að segja við kaffivélina. Borgin fær tekjur á óbeinan hátt, frá merkjavarningi, ferðaþjónustu og auknum lífsgæðum sem fylgja því að vera spennandi borg."
 
 "Í samanburði við suma geðveikina og skrímslin þarna úti þá er nánast hagur borgarinnar að halda okkur í umferð. Eins og ég sé það erum við hvorki betri né verri en hinir svokölluðu góðu gæjar. Við stöndum frammi fyrir meiri áhættu þegar upp er staðið, með möguleikann á fangelsisvist og meiri hættu á líkamsmeiðingum, en við fáum líka betri útborgun. Við einfaldlega völdum veginn með meiri áhættu og meiri umbun."
 
@@ -42,7 +42,7 @@ En akkúrat núna, mögulega í fyrsta skiptið síðan Bitch sigaði hundunum s
 
 Svo var það þetta með að Armsmaster sagði að tveir meðlimir Undersiders teymisins væru morðingjar og efinn sem nagaði mig varðandi það og hálfpartinn spillti öllum samskiptum sem ég átti við þau öll. Þegar ég brosti vegna brandara sem Alec sagði, var ég kannski að hlæja að brandara sögðum af morðingja? Mér líkaði vel við Brian, en nú var ég lítandi til baka á hvernig hann hefði lýst hvernig best væri að taka andstæðinga úr leik í bardaga á frekar grimmilegan máta, ég velti fyrir mér hvort hann hefði einhverntímann gengið skrefinu lengra og rifið einhvern úr hálsliðnum. Það var ekki heldur erfitt að ímynda sér að eitt af leyndarmálunum sem Lisa geymdi væri morð. Mér fannst eins og öll samskipti við þau væru sýkt og ég gat ekki spurt neitt þeirra spurninga sem gætu slegið á grunsemdirnar sem mölluðu í huga mínum.
 
-En að segja ekkert núna mundi einungis auka líkurnar á að henni fyndist ég tortryggileg og ef hún mundi einbeita sér að mér með kraftinum sínum efaðist ég um að leynileikurinn minn færi fram hjá henni. Ég játaði með hálfsannleik, "Ég lenti í deilum við ónefndan aðila í gærkvöldi. Ég held að það hafi verið gagnkvæm vonbrigði, ýmislegt var sagt sem hefði betur verið látið ósagt, særandi. Ég hugsa að ég sé smá reið yfir því og sjálfstraustið mitt er örlítið laskað."
+En að segja ekkert núna mundi einungis auka líkurnar á að henni fyndist ég tortryggileg og ef hún mundi einbeita sér að mér með kraftinum sínum efaðist ég um að leyniaðgerðin mín færi fram hjá henni. Ég játaði með hálfsannleik, "Ég lenti í deilum við ónefndan aðila í gærkvöldi. Ég held að það hafi verið gagnkvæm vonbrigði, ýmislegt var sagt sem hefði betur verið látið ósagt, særandi. Ég hugsa að ég sé smá reið yfir því og sjálfstraustið mitt er örlítið laskað."
 
 "Æ, þessi aðili getur farið í rassgat," sagði Lisa. Ég brást við með að lyfta annarri augabrúninni.
 
@@ -50,17 +50,17 @@ Hún hélt áfram, "Sjáðu til, ég þekki þig. Hvort sem þú trúir mér eð
 
 Á vissan hátt kannski. Hvernig ég mundi eftir þessu þá hafði ég verið vöðluð upp í fórsturstellingu þegar þau fjögur höfðu komið mér til bjargar. Ég leiðrétti hana ekki.
 
-"Svo þessi strákur eða stelpa sem hefur komið þér svona úr jafnvægi? Ég segi til fjandans með viðkomandi. Sú manneskja þekkir þig greinilega ekki og veit ekki hvers þú ert megnug."
+"Svo þessi strákur eða stelpa sem kom þér svona úr jafnvægi? Ég segi til fjandans með viðkomandi. Sú manneskja þekkir þig greinilega ekki og veit ekki hvers þú ert megnug."
 
-Ég hefði stöðvað mig ef ég hefði getað það, en kaldhæðnin í fullyrðingu hennar var of mikil. Ég glotti, lítandi út um gluggann til að fela svipbrigðin frá Lisu.
+Ég hefði stöðvað mig ef ég hefði getað það, en kaldhæðnin í því sem hún sagði var of mikil. Ég glotti, lítandi út um gluggann til að fela svipbrigðin frá Lisu.
 
 "Ég sá þetta. Ekki reyna að telja þér trú um að ég hafi ekki séð þetta. Svo ég hef náð að hrista doldrungann úr þér. Gott. Líttu nú aðeins vinstra megin við okkur."
 
 "Hver notar orð eins og doldrunga lengur?" hugsaði ég upphátt samhliða því að ég hlýddi fyrirmælum hennar. Hún svaraði mér með léttu flissi.
 
-Þegar ég áttaði mig á hvað ég var að horfa á, í gegnum ausandi rigninguna og umferðina, kyngdi ég hart. Þetta var yfir tólf hæða steinsteypt háhýsi, með kastalavirki á þökum og svölum, óhugnarlegar ufsagrýlur á hinum ýmsu hliðum og járnteina fyrir öllum gluggum. Aðalinngangurinn var með stórar steintröppur fyrir framan, svolítið eins og á stóru dómshúsunum, með styttur af prjónandi hrossum með mikið flagsandi fax sitthvoru megin við tröppurnar. Nafnið var greypt í steinvegginn fyrir ofan aðalinnganginn. Brockton Bay Seðlabankinn. Algjört kastalavirki.
+Þegar ég áttaði mig á hvað ég var að horfa á, í gegnum ausandi rigninguna og umferðina, kyngdi ég hart. Þetta var yfir tólf hæða steinsteypt háhýsi, með kastalavirki á þökum og svölum, óhugnarlegar ufsagrýlur á hinum ýmsu hliðum og járnteina fyrir öllum gluggum. Aðalinngangurinn var með stórar steintröppur fyrir framan, svolítið eins og á stóru dómshúsunum, með styttur af prjónandi hrossum með mikið flagsandi fax sitthvoru megin við tröppurnar. Nafnið var greipt í steinvegginn fyrir ofan aðalinnganginn. Brockton Bay Seðlabankinn. Algjört kastalavirki.
 
-"Eftir tæpan hálftíma eða svo verðum við á leið í burtu héðan, tugþúsundum ríkari en þegar við komum, með adrenalínið flæðandi í æðum okkar," hvíslaði Lisa svo ég rétt svo heyrði, "Segðu mér nú. Sérðu það fyrir þér?"
+"Eftir tæpan hálftíma eða svo verðum við á leið burt héðan, tugþúsundum ríkari en þegar við komum, með adrenalínið flæðandi í æðum okkar," hvíslaði Lisa svo ég rétt svo heyrði, "Segðu mér nú. Sérðu það fyrir þér?"
 
 Ég gat ekki sagt það.
 
