@@ -2,7 +2,7 @@
 
 "Líttu á þetta sem leik," sagði Lisa, "Útgáfu af löggu og bófa leik með mikið undir."
 
-Stanslaus úrkoman dundi á sendibílnum sem Lisa ók. Rigningin yfirgnæfði allan hávaða frá umferðinni í kringum okkur og takmarkaði sýn okkar á umhverfið í kring innan úr bílnum, bíllinn var hálfpartinn eins og eyja í miðri umferð miðbæjarins. Umferðateppa hafði myndast, svo slæm að stöku sinnum setti Lisa sjálfskiptan sendibílinn í park og drap á honum. Til að drepa tímann hafði ég spurt Lisu hvers vegna ekki var flett ofan af sumum illmennum sem náðust, og ég hafði greinilega rekist á eitt af hennar uppáhalds umræðuefnum. Ég hugsaði með mér að það var gott að hún var í stuði til að tala vegna þess að ég var það alls ekki.
+Stanslaus úrkoman dundi á sendibílnum sem Lisa ók. Rigningin yfirgnæfði allan hávaða frá umferðinni í kringum okkur og takmarkaði sýn okkar á umhverfið í kring innan úr bílnum, bíllinn var hálfpartinn eins og eyja í miðri umferð miðbæjarins. Umferðateppa hafði myndast, svo slæm að stöku sinnum setti Lisa sjálfskiptan sendibílinn í stöðugír og drap á honum. Til að drepa tímann hafði ég spurt Lisu hvers vegna ekki var flett ofan af sumum illmennum sem náðust, og ég hafði greinilega rekist á eitt af hennar uppáhalds umræðuefnum. Ég hugsaði með mér að það var gott að hún var í stuði til að tala vegna þess að ég var það alls ekki.
 
 "Ég held," byrjaði ég, "að þetta sé töluvert nær alvöru löggu og bófa en einhverjum leikskólaleik."
 
