@@ -1,6 +1,6 @@
 ### Æsingur 3.4
 
-"Ég mæti þangað. Já-" Ég sá ljós í stofuglugganum og lagði hönd mína yfir neðri hluta farsímans á meðan ég athugaði málið nánar. Fjandinn, pabbi minn var heima. Ég lagði símann að eyranu, "Fyrirgefðu, ég verð að fara. Nei. Nei. Hlustaðu-"
+"Ég mæti þangað. Já-" Ég sá ljós í stofuglugganum og lagði hönd mína yfir neðri hluta farsímans á meðan ég athugaði málið nánar. Fjandinn, pabbi minn var enn heima. Ég lagði símann að eyranu, "Fyrirgefðu, ég verð að fara. Nei. Nei. Hlustaðu-"
 
 Ég heyrði útihurðina opnast, ég rétt náði að loka símanum og skella honum í vasann. Ég myndi biðjast afsökunar á að hafa skellt á síðar. Ég vildi klárlega ekki að pabbi sæi mig með farsímann. Ég var ekki viss hvort hann mundi neita mér um að eiga slíkan, mér fannst líklegra að hann mundi leyfa mér það satt að segja, en allt frá því manna dó höfðu farsímar haft mjög neikvæða ímynd í augum pabba. Það og að ég þyrfti að útskýra hvaðan ég hefði fengið símann og hvernig ég hefði borgað fyrir hann.
 
@@ -136,4 +136,4 @@ Hann leit einhvernveginn örðuvísi út en síðast þegar ég hitti hann. Vari
 
 ---
 
-[Fyrri hluti](Ormur-03.03.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.03.md) - [Næsti hluti](Ormur-03.05.md)
