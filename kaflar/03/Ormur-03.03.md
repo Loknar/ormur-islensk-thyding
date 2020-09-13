@@ -22,7 +22,7 @@ Lisa hikaði smá, "Tuttugu þúsund?"
 
 Lisa kinkaði kolli og brosti þegar hann talaði. Ég hélt í smá stund að hún ætlaði að segja eitthvað, en hún gerði það ekki.
 
-Brian hélt áfram, tónninn orðinn töluvert dramatískur þegar hann þuldi, "Við munum ekki geta hörfað eins við höfum gert þegar hlutirnir hafa farið aðeins úr böndunum áður. Getum ekki forðast bardagann ef við viljum komast upp með eitthvað sem vert er að tala um. Hver einasti banki er með mörg verndarlög. Járnrimlar, brynvarðar dyr og hvelfingar og svo framvegis. Jafnvel með kraftinn þinn Lisa, þá eru takmörk fyrir hve hratt við komumst í gegnum slíkar hindranir. Bætum við tímanum sem fer í að meðhöndla gísla og setja upp örugga flóttaleið og ég get nokkurnveginn ábyrgst að það er nægur tími fyrir einhverja skikkjuna til að frétta af ráninu og mæta á staðinn til að hægja á okkur enn frekar."
+Brian hélt áfram, tónninn orðinn töluvert dramatískur þegar hann þuldi, "Við munum ekki geta hörfað eins við höfum gert þegar hlutirnir hafa farið aðeins úr böndunum áður. Getum ekki forðast bardaga ef við viljum komast upp með eitthvað sem vert er að tala um. Hver einasti banki er með mörg verndarlög. Járnrimlar, brynvarðar dyr og hvelfingar og svo framvegis. Jafnvel með kraftinn þinn Lisa, þá eru takmörk fyrir hve hratt við komumst í gegnum slíkar hindranir. Bætum við tímanum sem fer í að meðhöndla gísla og setja upp örugga flóttaleið og ég get nokkurnveginn ábyrgst að það er nægur tími fyrir einhverja skikkjuna til að frétta af ráninu og mæta á staðinn til að hægja á okkur enn frekar."
 
 Alec sagði, "Mig langar samt smá að gera þetta. Að ræna banka kemur manni á forsíður blaðanna. Væri stórt stökk fyrir orðsporið okkar."
 
@@ -32,7 +32,7 @@ Brian nöldraði, "Það væri enn betra fyrir orðsporið okkar klúðra ekki v
 
 Alec leit á mig, "Hvað finnst þér?"
 
-Ég var nánast búin að gleyma að ég var hluti af þessu samtali. Það síðasta sem ég vildi fara að gera var held ég að ræna banka. Gíslin gætu meiðst. Staðreyndin að ránið yrði forsíðufrétt var ekki til að fegra hugmyndina, ef ég vildi einhverntímann fletta niður leiktjöldunum af illmennaleik mínum og gerast ofurhetja með gott orðspor. Ég endaði á að svara, "Mér finnst Brian koma með góð rök gegn því að gera þetta. Þetta hljómar svo kærulaust."
+Ég var nánast búin að gleyma að ég var hluti af þessu samtali. Það síðasta held ég sem ég vildi fara að gera var að ræna banka. Gísl gætu meiðst. Staðreyndin að ránið yrði forsíðufrétt var ekki til að fegra hugmyndina, ef ég vildi einhverntímann fletta burtu leiktjöldunum af illmennaleik mínum og gerast ofurhetja með gott orðspor. Ég endaði á að svara, "Mér finnst Brian koma með góð rök gegn því að gera þetta. Þetta hljómar svo kærulaust."
 
 Bitch hnussaði. Mér fannst ég sjá Alec ranghvolfa augunum.
 
@@ -46,11 +46,11 @@ Lisa hallaði sér fram, "Hann færir göð rök, en ég er með betri rök. Eru
 
 "Svo allt sem ég sagði varðandi öryggisgæslu vegur í raun tvöfalt," bætti Brian inní.
 
-"*Ef við ráðumst á Bay Central, í miðbænum,*" endurtók Lisa, og reyndi að gefa yfirgripum okkar ekki gaum, "þá erum við að ráðast á stað einungis kílómetra frá Arcadia High, þar sem flestir meðlimir Wards deildarinnar ganga í skóla. Miðað við lögsagnarumdæmið mun New Wave ekki geta skorist í leikinn án þess að stíga á tærnar á Wards deildinni, sem nokkurnveginn tryggir að við munum lenda á móti teymi af yngri ofurhetjum. Með mér hingað til?"
+"*Ef við ráðumst á Bay Central, í miðbænum,*" endurtók Lisa, og reyndi að gefa yfirgripum okkar ekki gaum, "þá erum við að ráðast á stað í einungis kílómetra fjarlægð frá Arcadia High, þar sem flestir meðlimir Wards deildarinnar stunda nám. Miðað við lögsagnarumdæmið mun New Wave ekki geta skorist í leikinn án þess að stíga á tærnar á Wards deildinni, sem nokkurnveginn tryggir að við munum lenda á móti teymi af yngri ofurhetjum. Með mér hingað til?"
 
 Við kinkuðum öll kolli eða muldruðum játandi.
 
-"Ímyndið ykkur núna, bankaránið gerist á miðjum skólatíma og hetjurnar geta ekki skyndilega yfirgefið kennslustundir sínar án þess að vekja mikla athygli. Fólk veit að meðlimir Wards deildarinnar ganga í Arcadia High menntaskólann, það veit bara ekki hver þau eru. Svo allir fylgjast stöðugt með því. Þar sem deildin getur ekki einfaldlega dregið alla meðlimina úr kennslu á sama tíma í hvert sinn sem deildin þarf að sinna svona málum án þess að vekja mikla athygli á þeim, þá eru líkurnar góðar á að við þyrftum einungis að berjast gegn nokkrum af sterkari meðlimunum, eða einum af þeim sterkari með hóp af öðrum með minna frábæra krafta. Við færum létt með að vinna svoleiðis."
+"Ímyndið ykkur núna, bankaránið gerist á miðjum skólatíma og hetjurnar geta ekki skyndilega yfirgefið kennslustundir sínar án þess að vekja töluverða athygli. Fólk veit að meðlimir Wards deildarinnar ganga í Arcadia High menntaskólann, það veit bara ekki hver þau eru. Svo allir fylgjast stöðugt með því. Þar sem deildin getur ekki einfaldlega dregið alla meðlimina úr kennslu á sama tíma í hvert sinn sem deildin þarf að sinna svona málum án þess að vekja mikla athygli á þeim, þá eru líkurnar góðar á að við þyrftum einungis að berjast gegn nokkrum af sterkari meðlimunum, eða einum af þeim sterkari með hóp af öðrum með minna frábæra krafta. Við færum létt með að vinna svoleiðis."
 
 "Allt í lagi," sagði Brian gremjulega, "ég viðurkenni að við færum líklega létt með svoleiðis kringumstæður, en-"
 
