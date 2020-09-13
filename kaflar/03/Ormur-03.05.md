@@ -58,11 +58,11 @@ Hann svaraði ekki.
 
 "Ég get ekki sagt ykkur það," sagði ég. Ef ég segði þeim það mundi Lisa komast að því að ég hefði svikið þau útfrá breyttum viðbragðstíma, auka vörðum eða hverju sem er. Hversu réttmæt sem þögn mín var sá ég að Armsmaster varð meira og meira pirraður.
 
-"Er það morð? Stendur til að skaða einhvern?"
+"Erum við að tala um morð? Stendur til að skaða einhvern?"
 
 "Nei," sagði ég, "ég er nokkuð viss um að engir óbreyttir borgarar muni slasast, nema hlutirnir fari virkilega úrskeiðis, sem er eitthvað sem ég vonast til að koma í veg fyrir."
 
-Hann setti upp fýlusvip og hætti að horfa út flóann og leit beint á mig, "Ég mun ekki veita þér neina vernd."
+Hann setti upp skeifu og hætti að horfa út flóann og leit beint á mig, "Ég mun ekki veita þér neina vernd."
 
 Ég kreppti hnefana með hendur niður með síðum, "Þetta er það eina sem ég bið þig um, og upplýsingarnar verða ykkar þegar ég hef fundið síðustu upplýsingarnar sem vantar!"
 
@@ -84,39 +84,39 @@ Tvo? Ég gat trúað því að Rachel hefði kannski drepið einhvern á einhver
 
 "Ég veit að *þú trúir* að þú sért að segja mér sannleikann. Það þýðir ekki að það sé í raun og veru sannleikurinn."
 
-Það var eitthvað við að heyra þessi orð frá Armsmaster sem gerði þau tvöfalt harðari að taka við. Ég opnaði munninn en heilinn bara gat ekki sett saman heildstætt svar. Ég endaði á að loka munninum aftur.
+Það var eitthvað við að heyra þessi orð frá Armsmaster sem gerði þau tvöfalt harðari að taka þeim. Ég opnaði munninn en heilinn bara gat ekki sett saman neitt heildstætt svar. Ég endaði á að loka munninum aftur.
 
-"Yfirgefðu þennan leik, litla pöddu stelpa, áður en þú bítur meira en þú getur tuggið. Segðu mér það sem þú veist núna, hér og nú, farðu svo heim. Mér er fullkomlega sama hvort þú leggur búninginn á hilluna eða skráir þig í Ward prógramið, bara ekki halda áfram þessum einleik. Það er það sem ég ráðlegg."
+"Yfirgefðu þennan leik, litla pöddu stelpa, áður en þú bítur meira en þú getur tuggið. Segðu mér það sem þú veist núna, hér og nú, farðu svo heim. Mér er fullkomlega sama hvort þú leggir búninginn á hilluna eða skráir þig í Ward prógramið, bara ekki halda áfram þessum einleik. Það er það sem ég ráðlegg."
 
 Það stakk að heyra hann segja þetta. Ég gerði aðra tilraun til að sannfæra hann, "Ég gaf þér Lung, fullan heiður. Þú getur ekki einu sinni leyft mér að njóta vafans?"
 
-"Þú gafst mér deyjandi mann!" öskraði Armsmaster og mér dauðbrá, "Það féll á mínar herðar! Ég þurfti að þola tveggja daga niðursetu, tveggja daga sviptingu allra vopna minna og herklæða! Ég var yfirheyrður, allur búnaðurinn minn tekinn í sundur og athugaður í bak og fyrir! Allt vegna þess að þú stóðst ekki mátið að nota pöddurnar þínar til að dæla í manninn vel yfir andskotans lífshættulegan skammt af eitri!"
+"Þú gafst mér deyjandi mann!" öskraði Armsmaster og mér dauðbrá, "Það féll á mínar herðar! Ég þurfti að þola tveggja daga niðursetu, tveggja daga sviptingu allra vopna minna og herklæða! Ég var yfirheyrður, allur búnaðurinn minn tekinn í sundur og athugaður í bak og fyrir! Allt vegna þess að þú stóðst ekki mátið að nota pöddurnar þínar til að dæla í manninn vel yfir andskotans lífshættulegum skammti af eitri!"
 
 Hegðun hans frá upphafi þessa fundar hafði verið fjandsamleg. Nú skildi ég hvers vegna. Ég rétti úr mér og sýndi á mér engan bilbug.
 
-"Það er ekki mér að kenna," sagði ég við Armsmaster, röddin mín þanin reiði. Ég lét í ljós grun sem hafði mallað á jaðri meðvitunar minnar alveg síðan ég frétti af ástandi Lung á sjúkrahúsinu, "Ég skammtaði honum ekki nógu mikið eitur til að drepa hann. Ég er nokkuð viss um að það hafi verið róandi lyfin sem þú pumpaðir í hann sem slógu út getu hans til að lækna sig, sem gerði eitrinu kleift að gera þann skaða sem það gerði."
+"Það er ekki mér að kenna," sagði ég við Armsmaster, röddin mín þanin reiði. Ég lét í ljós grun sem hafði mallað á jaðri meðvitunar minnar alveg síðan ég hafði heyrt af ástandi Lung á sjúkrahúsinu, "Ég skammtaði honum ekki nógu mikið eitur til að drepa hann. Ég held að það hafi verið róandi lyfin sem þú pumpaðir í hann sem slógu út getu hans til að lækna sig, sem gerði eitrinu kleift að gera þann skaða sem það gerði."
 
 Við störðum á hvor annað, eins hart tvær manneskjur gátu gert án þess að sjá í augu hvors annars. Það var samt á engan hatt erfitt að ímynda sér svipinn á andlitinu hans.
 
-"Ef þú hefur samband við mig aftur skaltu vera tilbúin að svara öllum spurningum sem ég legg fyrir þig. Umfram það er ég ekki að fara að leggja blessun mína yfir það sem þú ert að reyna að gera. Þú ert gjörsamlega á eigin vegum."
+"Ef þú hefur samband við mig aftur skaltu vera tilbúin að svara öllum spurningum sem ég legg fyrir þig. Umfram það er ég ekki að fara að leggja blessun mína yfir það sem þú ert að reyna að gera. Þú ert algjörlega á eigin vegum."
 
-Ég hefði verið til í að storma burt þá og þegar, eða svara reiðilestri hans með mínum eigin. Nema það var eitt enn sem ég þurfti núna frá honum. Þegar ég hafði gengið út frá því að hann mundi veita mér liðsinni hafði ég ráðgert að biðja hann um eitt atriði í viðbót. Nú var ég komin í þá stöðu að þurfa mögulega að grátbiðja mann sem mig langaði virkilega að berja í andlitið.
+Ég var tilbúin að storma burt þá og þegar, eða svara reiðilestri hans með mínum eigin. Nema það var eitt sem ég þurfti frá honum núna. Þegar ég hafði gengið út frá því að hann mundi veita mér liðsinni hafði ég ráðgert að biðja hann um þetta eina atriði í viðbót. Nú var ég komin í þá stöðu að þurfa mögulega að grátbiðja mann sem mig langaði virkilega að berja í andlitið.
 
-"Ég-" Ég hikaði og reyndi að finna orðin, "Ég verð að biðja þig um að segja engum að við hittumst hér í kvöld. Engar skrár, hvorki á pappír né rafrænar. Ekki gera neitt öðruvísi sökum þess sem ég hef sagt þér hér í kvöld. Ég veit ég get ekki látið þig gera það. Ég hef ekkert að bjóða þér annað en upplýsingarnar sem ég mun afla. En ef þau komast að því að ég hitti þig, þá mun fara verulega illa fyrir mér."
+"Ég-" Ég hikaði og reyndi að finna orðin, "Ég verð að biðja þig um að segja engum að við hittumst hér í kvöld. Engar skrár, hvorki pappírs né rafrænar. Ekki gera neitt öðruvísi sökum þess sem ég hef sagt þér hér í kvöld. Ég veit ég get ekki látið þig gera það. Ég hef ekkert að bjóða þér annað en upplýsingarnar sem ég mun afla. En ef þau komast að því að ég hitti þig, þá mun fara verulega illa fyrir mér."
 
-"Þú komst þér í þessa stöðu. Þú verður sjálf að vinna þig úr henni."
+"Þú komst þér í þessa stöðu. Þú verður sjálf að koma þér úr henni."
 
-"Nei," Ég hristi höfuðið, bálreið yfir því hvað hann hagaði sér eins og mikill þverhaus. Með kreppta hnefana sagði ég, "Ekki leika þér að mér hérna. Þú ert kannski ekki sammála því sem ég er að gera, en ég hóf þessa vegferð vegna þess að ég vildi hjálpa ykkur. Það minnsta sem þú getur gert er að ekki vísvitandi neita mér um þetta, því það mun koma upp um mig og það mun valda því að ég slasast eða jafnvel týni lífi mínu af því fjandans orðsporið þitt fékk á sig smá slettu."
+"Nei," Ég hristi höfuðið, bálreið yfir því hvað hann hagaði sér eins og mikill þverhaus. Með kreppta hnefana sagði ég, "Ekki leika þér að mér hérna. Þú ert kannski ekki sammála því sem ég er að gera, en ég hóf þessa vegferð vegna þess að ég vildi hjálpa ykkur. Það minnsta sem þú getur gert er að ekki vísvitandi neita mér um þetta, því það mun koma upp um mig og það mun valda því að ég slasast eða jafnvel týni lífi mínu af því fjárans orðsporið þitt fékk á sig smá slettu."
 
 Ég sá eftir þessum orðum um leið og ég hafði látið þau frá mér.
 
 "Fínt," ákvað hann og vísaði mér svo í burtu, "Þú mátt láta þig hverfa, núna."
 
-Hvernig hann sagði það lét mig langa að gera akkúrat hið gagnstæða. En ef það var eitthvað jákvætt við eineltið sem ég hafði gengið í gegnum á skólagöngu minni þá var það að ég gat höndlað svona aðferðir gerenda og asna þegar ég var ekki í búning, og ef ég gat það ekki í búning þá gat ég það líka í búning. Ég fór og hugsaði ekki tvisvar um það.
+Hvernig hann sagði það lét mig langa að gera akkúrat hið gagnstæða. En ef það var eitthvað jákvætt við eineltið sem ég hafði gengið í gegnum á skólagöngu minni þá var það að ég gat höndlað svona aðferðir gerenda og asna þegar ég var ekki í búning, og ef ég gat það þegar ég var ekki í búning þá gat ég það líka í búning. Ég fór og hugsaði ekki tvisvar um það.
 
 Ég var fokreið, og það var mun auðveldara að vera reið við Armsmaster en að vera reið við sjálfa mig. Þetta hafði farið allt öðruvísi en ég hafði áætlað. Ég vissi ekki einu sinni hvort þetta 'fínt' hans þýddi að hann hefði samþykkt það sem ég hafði endað á að biðja hann um, ef ekki þá var ég í djúpum skít næst þegar ég færi á fund hinna meðlima Undersiders. Það voru tvær leiðir fyrir mig að bregðast við þessu. Ég gat annað hvort lagt búninginn á hilluna eins og Armsmaster vildi, eða ég gat haldið njósnaleiknum áfram og sýnt honum að hann hefði rangt fyrir sér.
 
-Til andskotans með hann. Ég ætlaði sko að ræna þennan helvítis banka. Ég mundi vinna mér inn traust hinna meðlima Undersiders, ég var að fara að komast að því hver bakhjarl þeirra var, og síðan myndi ég afhenda Protectorate deildinni allar upplýsingarnar.
+Til fjandans með hann. Ég ætlaði sko að ræna þennan bévítans banka. Ég mundi vinna mér inn traust hinna meðlima Undersiders, ég var að fara að komast að því hver bakhjarl þeirra var, og síðan myndi ég afhenda Protectorate deildinni allar upplýsingarnar.
 
 Til Miss Militia hugsaði ég. Ekki Armsmaster.
 
