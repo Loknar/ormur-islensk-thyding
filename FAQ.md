@@ -54,7 +54,8 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Bakuda | Búmmhildur |
 | Bitch | Tík |
 | Bonesaw | Beinsög |
-| Brandish | Barefla |
+| Brandish | Brotkúla |
+| Bug | Padda |
 | Clockblocker | Klokkblokker |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
@@ -100,7 +101,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Leviathan | Ægir |
 | Simurgh | Sígyn |
 
-## Af hverju ertu að leggja alla þessa vinnu á þig frítt?
+## Af hverju ertu að leggja á þig alla þessa þýðingarvinnu endurgjaldslaust?
 
 ...
 
