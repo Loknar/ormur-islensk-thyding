@@ -76,4 +76,4 @@ Lisa glotti.
 
 ---
 
-[Fyrri hluti](Ormur-03.05.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.05.md) - [Næsti hluti](Ormur-03.07.md)
