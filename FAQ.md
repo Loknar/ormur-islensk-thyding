@@ -71,6 +71,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Legend | Snorri Edda |
 | Lung | Fáfnir |
 | Narwhal | Náhveli |
+| Nilbog | Illört |
 | Panacea | Panasía |
 | Parian | Dúkkulísa |
 | Regent | Ráðanautur |
