@@ -14,7 +14,7 @@ Stanslaus úrkoman dundi á sendibílnum sem Lisa ók. Rigningin yfirgnæfði al
 
 "Endiboðarnir," bætti ég við.
 
-Lisa þagnaði, "Akkúrat. En þú verður að átta þig á, níutíu prósent af öllu skikkjufárinu sem er í gangi? Tilheyrir fyrsta hópnum. Fullorðið fólk í búningum sem spilar harðkjarna snertilöggu og bófa með stórskemmtilega krafta og önnur leikföng. Þetta hugarfar á við um fólk án krafta líka. Eins og ég sé það, að vera með teymi ofurhetja á einhverjum stað eins og í einhverri borg er svolítið eins og að vera með íþróttalið. Fólk finnur til löngunar að hvetja þau áfram eins og klapplið íþróttaliða, þau skapa vinsælt afþreyingarefni sem snýst ekki um styrjaldir eða vatnskreppu eða eitthvað álíka niðurdrepandi, þau skapa söluvörur fyrir ferðamenn ... allt góðláta hlutir sem ríkisstjórnin elskar. En hvaða fjör er að vera með lið ef það hefur enga andstæðinga?"
+Lisa þagnaði, "Akkúrat. En þú verður að átta þig á, níutíu prósent af öllu skikkjufárinu sem er í gangi? Tilheyrir fyrsta hópnum. Fullorðið fólk í búningum sem spilar harðkjarna snertilöggu og bófa með stórskemmtilega krafta og önnur leikföng. Þetta hugarfar á við um fólk án krafta líka. Eins og ég sé það, að vera með teymi ofurhetja á einhverjum stað eins og til dæmis borginni okkar er svolítið eins og að vera með íþróttalið. Fólk finnur hjá sér þörf til að hvetja þau áfram eins og stuðningsfólk íþróttaliða, þau skapa vinsælt afþreyingarefni sem snýst ekki um styrjaldir eða vatnskreppu eða eitthvað álíka niðurdrepandi, þau skapa söluvörur fyrir ferðamenn ... allt góðláta hlutir sem ríkisstjórnin elskar. En hvaða fjör er að vera með lið ef það hefur enga andstæðinga?"
 
 "Sem er þar sem við komum inn," stakk ég inn, giskandi hvað hún væri að fara með þessu.
 
@@ -60,7 +60,7 @@ Hún hélt áfram, "Sjáðu til, ég þekki þig. Hvort sem þú trúir mér eð
 
 Þegar ég áttaði mig á hvað ég var að horfa á, í gegnum ausandi rigninguna og umferðina, kyngdi ég hart. Þetta var yfir tólf hæða steinsteypt háhýsi, með kastalavirki á þökum og svölum, óhugnarlegar ufsagrýlur á hinum ýmsu hliðum og járnteina fyrir öllum gluggum. Aðalinngangurinn var með stórar steintröppur fyrir framan, svolítið eins og á stóru dómshúsunum, með styttur af prjónandi hrossum með mikið flagsandi fax sitthvoru megin við tröppurnar. Nafnið var greipt í steinvegginn fyrir ofan aðalinnganginn. Brockton Bay Central Bank. Rammgerður kastali.
 
-"Eftir tæpan hálftíma eða svo verðum við á leið burt héðan, tugþúsundum ríkari en þegar við komum, með adrenalínið flæðandi í æðum okkar," hvíslaði Lisa svo ég rétt svo heyrði, "Segðu mér nú. Sérðu það fyrir þér?"
+"Eftir svona tuttugu mínútur eða svo verðum við á leið burt héðan, tugþúsundum ríkari en þegar við komum, með adrenalínið flæðandi í æðum okkar," hvíslaði Lisa svo ég rétt svo heyrði, "Segðu mér nú. Sérðu það fyrir þér?"
 
 Ég gat ekki sagt það.
 

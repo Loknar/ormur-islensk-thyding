@@ -12,7 +12,7 @@ Viðbrögð hans voru stutt en hnitmiðuð. Hakan hans lyftist, hann breytti fó
 
 Hann var ekki að flýta sér að svara mér, það leið dágóð stund áður en hann sagði við mig, "Það er hægt að blekkja lygamæla, jafnvel minn."
 
-"Allavega, segðu mér hvort eitthvað vekji viðvaranir hjá þér eða eðlishvatir þínar segi að ég sé að ljúga. Ég var góður gaur þegar þú hittir mig þá, ég er góður gaur ennþá núna. Ég samþykkti að ganga í lið með Undersiders vegna þess að þú sagðir mér að þið væruð í miklum vandræðum með að afla upplýsinga um þau. Nú veit ég hvernig þau líta út á bak við grímurnar, ég veit nöfnin sem þau nota, ég hef nokkuð góða hugmynd um hvað kraftarnir þeirra gera og ég veit var þau halda til."
+"Allavega, segðu mér hvort eitthvað vekji viðvaranir hjá þér eða eðlishvatir þínar segi að ég sé að ljúga. Ég var góður gaur þegar þú hittir mig þá, ég er góður gaur ennþá núna. Ég samþykkti að ganga í lið með Undersiders vegna þess að þú sagðir mér að þið væruð í miklum vandræðum með að afla upplýsinga um þau. Nú veit ég hvernig þau líta út á bak við grímurnar, ég veit nöfnin sem þau nota, ég hef nokkuð góða hugmynd um hvað kraftarnir þeirra gera og ég veit hvar þau halda til."
 
 Hann færði sig í slakari líkamsstöðu. Hann skellti stönginni á atgeirnum sínum aftan á bakið og það small fast á sinn stað. "Ef staðan er þannig þá hefurðu unnið okkur mikinn greiða. Værir þú tilbúin að koma með mér snöggvast í Protectorate höfuðstöðvarnar og veita deildinni þessar upplýsingar sem þú hefur aflað?"
 
