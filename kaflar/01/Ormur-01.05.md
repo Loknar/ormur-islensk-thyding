@@ -82,7 +82,7 @@ Grue sneri sér að mér. Ég stóð á hinum enda þaksins við hlið brunastig
 
 Ég starði á hana. Röddin mín kiknaði í hálsinum mínum áður en ég náði að koma út orðunum, "Ég veit ekki... ég er ekki búin að velja mér nafn ennþá."
 
-"Jæja, Padda, það er skikkja á leiðinni hingað sem verður komin eftir innan við mínútu. Þú gerðir okkur feitan greiða með Lung, svo leyfðu mér að gefa þér þetta ráð. Ef meðlimur í Protectorate kemur að vígvelli þar sem tvö illmenni eru að berjast og virðast aðframkomin, þá er hann ekki að fara að láta neinn sleppa. Þú ættir að koma þér héðan," sagði hún. Hún brosti til mín. Hún var með svona kattarbros sem sneri upp á endunum. Á bak við látlausu dómínó grímuna glitruðu augun hennar eins og hún væri að huga að einhverjum bellibrögðum. Ef hún hefði verið rauðhærð hefði hún minnt mig á ref. Hún gerði það samt eiginlega.
+"Jæja, Padda, það er skikkja á leiðinni hingað sem verður komin eftir innan við mínútu. Þú gerðir okkur feitan greiða með Lung, svo leyfðu mér að gefa þér þetta ráð. Ef meðlimur Protectorate deildarinnar kemur að vígvelli þar sem tvö illmenni eru að berjast og virðast aðframkomin, þá er hann ekki að fara að láta neinn sleppa. Þú ættir að koma þér héðan," sagði hún. Hún brosti til mín. Hún var með svona kattarbros sem sneri upp á endunum. Á bak við látlausu dómínó grímuna glitruðu augun hennar eins og hún væri að huga að einhverjum bellibrögðum. Ef hún hefði verið rauðhærð hefði hún minnt mig á ref. Hún gerði það samt eiginlega.
 
 Þar með lauk þessum hittingi, þau stukku af stað á skepnunum ófrýnilegu, eitt þeirra lenti á eða rakst í brunastigann á leiðinni niður, það heyrðust skerandi brestir í járngrindinni.
 
