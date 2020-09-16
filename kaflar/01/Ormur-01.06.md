@@ -34,11 +34,11 @@ Hann kom nær, virti mig fyrir sér þar sem ég sat með hendurnar utanum hnén
 
 Hann hló létt og það hljómaði hlýlega, mjög eðlilega. "Ég myndi ekki vita það. Ég byrjaði í bransanum nógu snemma til að missa ekki af öllum góðu nöfnunum."
 
-Það kom hik á samræðurnar. Skyndilega fór ég hjá mér. Ég veit ekki hvers vegna, en ég sagði viðurkennandi, "Ég var næstum dáin."
+Það kom hik á samræðurnar. Skyndilega fór ég hjá mér. Ég veit ekki hvers vegna, en ég sagði með viðurkennandi tón, "Ég var næstum dáin."
 
-"Þess vegna erum við með Ward prógramið," sagði hann. Hann hljómaði ekki eins og hann væri að dæma mig, engin pressa. Bara yfirlýsing.
+"Þess vegna erum við með Wards prógramið," sagði hann. Hann hljómaði ekki eins og hann væri að dæma mig, engin pressa. Bara yfirlýsing.
 
-Ég kinkaði kolli einu sinni, meira bara til að veita eitthvað svar en að lýsa yfir samþykki við svarið. Wards deildirnar voru undir-átján undirdeildir í Protectorate samtökunum, og Brockton Bay var með eina slíka deild, með sömu nafnavenju og Protectorate deildin, "Wards East-North-East". Ég hafði íhugað að sækja um, en hugmyndin að komast úr menntaskólanum með því að fleygja mér hugsanlega ennþá meira unglingadrama, með ennþá strangari yfirsýn fullorðinna og strangara skipulag hljómaði niðurdrepandi.
+Ég kinkaði kolli einu sinni, meira bara til að veita eitthvað svar en að lýsa yfir samþykki við svarið. Wards deildirnar voru undir-átján undirdeildir í Protectorate samtökunum, og Brockton Bay var með eina slíka deild, með sömu nafnavenju og Protectorate deildin, "Wards East-North-East". Ég hafði íhugað að sækja um, en hugmyndin að komast úr menntaskólanum með því að fleygja mér í hugsanlega ennþá meira unglingadrama, með ennþá strangari umsjá fullorðinna og strangara skipulag, það hljómaði niðurdrepandi.
 
 "Náðirðu Lung?" spurði ég, til að beina umræðuefninu frá Wards deildinni. Ég var nokkuð viss um að hann var skyldaður til að reyna að kveða nýjar hetjur í bæði Protectorate deildina eða Wards deildina ef undir átján, að stuðla að eflingu samtakanna um samvinnandi hetjur sem tóku ábyrgð á gjörðum sínum, og ég vildi helst forðast það að hann reyndi að fá mig til að ganga í lið með þeim að svo stöddu.
 
@@ -72,7 +72,7 @@ Armsmaster sneri sér við og horfði á mig. Svo ég sagði honum sólarsöguna
 
 "Þá skaltu líta á það sem góðan hlut að þau hafi ranglega talið þig vera bandamann," sagði Armsmaster.
 
-"Ég mun reyna að líta þannig á það," svaraði ég, hissa á hve auðveldlega hann hefði tekið neikvæðan hlut og snúið honum upp í jákvæðan eins og ég hafði markvisst unnið í að temja mér. Ég öfundaði hvað það virtist honum auðvelt.
+"Ég mun reyna að líta þannig á það," svaraði ég, hissa á hve auðveldlega hann hefði tekið neikvæðan hlut og snúið honum upp í jákvæðan eins og ég hafði markvisst reynt að temja mér. Ég öfundaði hvað það virtist honum auðvelt.
 
 "Það var lagið vina," sagði hann, "Og fyrst við erum að horfa fram á veginn, við þurfum að ákveða stefnuna áfram úr þessu."
 
