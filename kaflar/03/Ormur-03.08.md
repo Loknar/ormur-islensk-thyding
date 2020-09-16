@@ -98,7 +98,7 @@ Clockblocker stóð vinstra megin við Aegis. Hann var klæddur í hvítan búni
 
 "Það eru svona upplýsingar sem þú átt að upplýsa okkur um með góðum fyrirvara," hvæsti Grue að henni, "og þau áttu ekki að vera sex, þú sagðir að þau yrðu að öllum líkindum bara þrjú."
 
-"Þau eru sjö," sagði Tattletale og kiknaði varnarlega þegar Grue barði í viðardyrnar. "Það er einn enn á þakinu. Ég veit ekki hver en ég held að það sé ekki Shadow Stalker. Gæti verið einn af meðlimum Protectorate deildarinnar."
+"Þau eru sjö," sagði Tattletale og kiknaði varnarlega þegar Grue barði í viðardyrnar. "Það er einn í viðbót uppi á þaki. Ég veit ekki hver það er en ég held að það sé ekki Shadow Stalker. Gæti verið einn af meðlimum Protectorate deildarinnar."
 
 "Þau eiga ekki að vera sex eða sjö!" öskraði Grue með ójarðneskri röddu, "Þau áttu að vera þrjú, í mesta lagi fjögur!"
 
@@ -116,23 +116,23 @@ Tattletale hristi höfuðið, "Það er það sem þau vilja. Hvers vegna heldur
 
 "Ef ég nota kraftinn minn til að-" byrjaði Grue.
 
-"Þau eru samt fleiri en við. Það eru minnst fimm leiðir fyrir þau að taka eitt okkar út á meðan við flýjum, jafnvel þó við blinduðum þau, ... og með Vista inni í myndinni. Takið hvaða vegalengd sem við þurfum að komast yfir og margfaldið hana, við yrðum í djúpum skít. Það væri kannski ekki yfirstíganlegt vandamál en þau eru bara of mörg."
+"Þau eru samt fleiri en við. Það eru minnst fimm leiðir fyrir þau að taka eitt okkar út á meðan við flýjum, jafnvel þó við blinduðum þau ... og með Vista inni í myndinni. Takið hvaða vegalengd sem við þurfum að komast yfir og margfaldið hana, við endum í djúpum skít. Þetta væri ekki vandamál ef þau væru ekki svona mörg."
 
-"Andskotinn," muldraði Regent.
+"Andskotinn," stundi Regent.
 
-"Við getum ekki bara hangið hér," sagði Grue, "Jú jú, þau verða blaut og köld, en líkurnar okkar versna bara með tímanum, ef við tefjumst of mikið gæti öll Protectorate deildin jafnvel náð að koma sér hingað."
+"Við getum ekki bara hangið hér," sagði Grue, "Þau verða að vísu blaut og köld, en líkurnar okkar versna bara með tímanum, ef við tefjumst of mikið gæti öll Protectorate deildin verið komin hingað."
 
-"Við erum með gísla," sagði Bitch, "ef þeir voga sér að koma inn þá tökum við einn gísl út." Einhverstaðar fyrir aftan okkur stundi einhver langt og hátt. Mig grunaði að viðkomandi hefði heyrt í henni.
+"Við erum með gísla," sagði Bitch, "ef þau koma inn þá tökum við út einn gíslinn." Einhverstaðar fyrir aftan okkur stundi einhver langt og hátt. Mig grunaði að viðkomandi hefði heyrt í henni.
 
-Ég lokaði augunum og andaði djúpt. Ástandið var slæmt og mig grunaði að það væri mér að kenna. Ég hafði sagt Armsmaster að eitthvað væri í vændum kvöldið áður. Ég gat vel trúað því að hann hefði sagt liðsmönnum sínum frá því að eitthvað væri í aðsigi. Í versta falli var það hann sem var á þakinu. Ef svo væri og Tattletale næði að leggja saman tvo og tvo var ég gjörsamlega búin að vera.
+Ég lokaði augunum og andaði djúpt. Ástandið var slæmt og mig grunaði að það væri mér að kenna. Ég hafði sagt Armsmaster að eitthvað væri í vændum kvöldið áður. Ég gat vel trúað því að hann hefði sagt liðsmönnum sínum frá því að eitthvað væri í aðsigi. Í versta falli var það hann sjálfur sem var á þakinu. Ef svo væri og Tattletale næði að leggja saman tvo og tvo var ég svo gott sem búin að vera.
 
 Andskotinn.
 
-"Við þurfum að koma þeim að óvörum," ég áttaði mig ekki á að ég talaði upphátt fyrr en orðin voru komin út um varir mínar.
+"Við þurfum að koma þeim að óvörum," ég áttaði mig ekki á að ég talaði upphátt fyrr en orðin voru flæðandi út um varir mínar.
 
-"Satt, en hvernig ætlum við að gera það?" svaraði Grue.
+"Satt, en hvernig getum við gert það?" svaraði Grue.
 
-"Þið eruð snillingar í að flýja, ekki satt? Svo við gerum eitthvað sem þau búast ekki við. Við ráðumst beint á þau."
+"Þið eruð meistarar í flóttaleiðum, ekki satt? Svo við gerum eitthvað sem þau búast ekki við. Við berjumst við þau hér og nú."
 
 ---
 

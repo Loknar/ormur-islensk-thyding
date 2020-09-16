@@ -1,10 +1,10 @@
 ### Æsingur 3.9
 
-Ég gat rétt ímyndað mér hvernig þetta leit út fyrir Wards deildar meðlimina sem voru saman komnir hérna. Á einu augnabliki voru þau stödd úti í grenjandi rigningunni bíðandi eftir að við létum til skara skríða. Á næsta augnabliki skutust útidyrahurðir bankans upp og afhjúpuðu ekkert nema algert myrkur. Örskömmu síðar sáu þau hóp gísla koma hlaupandi út um hurðina og hlaupa og falla niður tröppurnar fyrir framan bygginguna.
+Ég gat rétt ímyndað mér hvernig þetta leit út fyrir Wards meðlimina sem voru saman komnir hérna. Á einu augnabliki voru þau stödd úti í grenjandi rigningunni bíðandi eftir að við létum til skara skríða. Á næsta augnabliki skutust útidyrahurðir bankans upp og afhjúpuðu ekkert nema algert myrkur. Örskömmu síðar sáu þau hóp gísla koma hlaupandi út um hurðina og hlaupa og falla niður tröppurnar fyrir framan bygginguna.
 
 Aegis galopnaði augun fyrir aftan grímuna. Hann leit til hliðar á Clockblocker sem benti niður á jörðina. Aegis leit aftur fram og kallaði, "Allir farandi úr bankanum! Niður á jörðina núna og ekki hreyfa ykkur!"
 
-Hann fékk ekki tækifæri til að sjá hvort gíslarnir hlýddu. Myrkrið braust út um aðalinngang bankans og flæddi út á götu eins og vatn úr brostinni stíflu. Á örskammri stundu voru gíslarnir huldir sjónum og Wards meðlimirnir neyddust til að hörfa aðeins til baka til að forðast að myrkrið gleypti þau.
+Hann fékk ekki tækifæri til að sjá hvort gíslarnir hlýddu. Myrkrið braust út um aðalinngang bankans og flæddi út á götu eins og vatn úr brostinni stíflu. Á örskammri stundu voru gíslarnir huldir sjónum og Wards meðlimirnir neyddust til að hörfa aðeins til baka til að forðast að myrkrið næði að gleipa þau.
 
 Inni í bankanum muldraði Grue, "Þetta ætti að gefa þeim ástæðu til að hugsa tvisvar áður en þau skjóta blindandi á svæði sem þau sjá ekki. Mér líkar þetta plan. Erum við tílbúin í hluta númer tvö?"
 
@@ -65,6 +65,50 @@ Hann var ekki eina sekúndu í jörðinni áður enn hann reis á fætur á ný.
 Á sama tíma var Clockblocker að slá frá sér pöddunum sem ég sendi á hann. Innan við sekúndubrot eftir að padda settist á búninginn hans frysti hann hana. Krafturinn minn hætti einfaldlega að skynja pödduna, eins og hún hefði horfið af yfirborði jarðar. Í raun og veru voru þær bara fastar í tíma. Fastar í loftinu, óhreyfanlegar, ósnertanlegar.
 
 En þessi kraftur gat virkaði gegn honum hugsaði ég. Ég lét pöddurnar mínar sveima á hann, umkringja hann, reyndi eftir besta megni að hylja allan líkama hans. Ég var nokkuð viss um að ég hefði heyrt sagt að hann gæti ekki affryst það sem hann frysti í tíma, þannig að ef ég fengi hann til að frysta allar pöddurnar í kringum hann myndi hann festast í fangelsi eigin krafts þar til frystingin rynni út.
+
+Annaðhvort var hann fljótur að hugsa eða hann hafði lent í svipuðum mótleikjum áður vegna þess að hann var með mótsvar. Hann sneri sér í hring og frysti pöddurnar samhliða því að hann sneri sér þannig að tímafrystar pöddur hrúguðust upp einungis á hlið hans fjær bankanum. Með megnið af pöddunum frosnar fyrir aftan sig var leið hans greið til Aegis.
+
+Á meðan ég afvegaleiddi Clockblocker hafði Bitch sigað Brutusi og Angelicu á Aegis. Hann bægði þeim báðum í burtu en hvítt glerið á hjálminum hans - hjálmi Clockblockers - hafði molnað, og búningurinn var rifinn með eina brynjuhlífina hangandi á garnspotta við handarkrikann hans.
+
+Brutus lét vaða á Aegis en þegar hann fór yfir svæðið sem Vista hafði skekkt dreif hann ekki alla leið. Skolturinn á honum skall saman einungis um þrjátíu sentimetrum frá andliti Aegis og slef spýttist á hann.
+
+Aegis brást við með því að skella báðum hnefunum saman á trýnið á Brutusi. Hundurinn féll á hliðina sem gaf Aegis glugga til að taka sig á loft.
+
+Angelica fylgdi á eftir, stökk í gegnum loftið líkt og Judas hafði gert skömmu áður. Hún náði honum ekki, lenti á húsvegg af slíkum krafti að gluggar á hliðinni splundruðust. Ég bjóst við að sjá hana falla niður en hún hafði greinilega önnur plön. Hún greip í steinsteypt húsið og gluggakistu með fjórum klóm sínum og stökk síðan hærra frá hlið hússins.
+
+Það kom mér mjög á óvart að sjá þessa fimleika frá einum hundanna, ég efaðist um að til væru orð sem lýstu hvernig Aegis hlaut að hafa liðið á þessum tímapunkti. Angelica greip ofurhetjuna ungu með skoltinum á sér og þau féllu til jarðar saman.
+
+Angelica lenti ekki með alla fjóra fætur undir sér og rann töluvert þegar hún skall í jörðina. Þegar hún staðnæmdist var hún þó enn með Aegis, annan handlegginn og hálfan búkinn lemmdan á milli tannanna hennar. Hún hristi hann eins og hundar hristu nagdótið sitt. Þegar hún stoppaði var hann enn að berjast við hana, notandi lausu höndina til að berja í hliðina á höfði hennar ítrekað. Tægjur og og sleftaumar blandaðir blóði runnu úr skoltinum á henni. Eða mér sýndist það, í raun var erfitt að sjá það frá sjónarhorninu mínu innan úr bankanum og í gegnum ausandi regnið.
+
+Ég náði að hægja á Clockblocker með að beina fleiri pöddum í veg fyrir hann. Ég safnaði góðu magni þeirra saman milli hans og Aegis, svo hann gæti ekki klárað að hlaupa til hans og fryst hundinn. Hann brást við með að sveigja, sveifla, snúa og slá eða dusta þær af sér með höndunum svo hann gæti fryst þær án þess að skapa hindranir í vegi sínum.
+
+Síðan ákvað hann að reyna að hunsa pöddusveimið. Ég greip tækifærið og lét pöddurnar bíta og stinga hann tuttugu sinnum eða svo. Undrunin og sársaukinn trufluðu flóttahreyfingarnar hans og hann skall með andlitið í nýfrystar pöddur af slíku afli að hann skall með bakið í malbikið og fætur upp í loft.
+
+Ég fengi líklega ekki betra tækifæri. Ég sendi meirihluta paddanna minna á hann þar sem hann lá í jörðinni.
+
+Halda andstæðingnum í vörn hafði Brian sagt þegar við æfðum sjálfsvörn saman. Halda honum á tánum, láta hann þurfa endalaust að giska á næstu hreyfingar, skipta á milli árásaraðferða.
+
+Ég beindi pöddunum að svæðunum þar sem húð hans var afhjúpuð og stýrði þeim inn á milli búningsins og líkama hans.
+
+Jafnvel með helling af skordýrum bítandi og stingandi hann ítrekað náði hann að stíga á fætur og halda áfram að reyna að koma Aegis til hjálpar. Hann vissi eins vel og ég að hann gæti ekki fryst pöddurnar nú þegar þær voru komnar undir búninginn hans. Hann hefði þurft að rífa upp búninginn með eigin styrk ef hann gerði það. Ég efaðist um að það væri svo auðvelt að rífa þennan búning.
+
+Þetta var í raun hálf kaldhæðnislegt. Ég hefði ekki getað þetta ef hann hefði ekki skipt um búning við liðsfélaga sinn. Venjulegi búningurinn hans Clockblocker huldi húð hans alveg, líkt og minn búningur. Líklega af meira eða minna sömu ástæðu.
+
+"Mér þykir þetta mjög leitt," muldraði ég, rétt nógu hátt svo ég sjálf heyrði. Ég gaf pöddunum nýja skipun.
+
+Á meðan pöddurnar hófu að flæða inn í nasirnar á honum af vægðarlausum ásetningi náði hann að halda hlaupunum áfram í átt að hundunum. Hann blés út um nasirnar til að reyna að losa pöddurnar úr nefniu svo hann gæti andað að sér en rak sig á að innöndun yrði vandamál. Hann gat ekki gert það án þess að soga pöddurnar lengra inn í nefholurnar svo hann endaði á að gera stór mistök, hann opnaði munninn til að anda að sér.
+
+Þegar haugur padda þvingaði sigg inn í opinn munninn á honum brást hann í skelfingu við og féll um koll. Mig grunaði að hann væri að kúgast en ég gat illa séð það frá sjónarhorni mínu innan úr bankanum.
+
+Að fyrirmælum mínum þvinguðu fleiri pöddur sig inn undir búninginn hans og inn í eyrun. Aðrar stærri skriðu í og í kringum augun og reyndu að þvinga sig í og undir augnlokin. Ég gat ekki ímyndað mér hvernig honum hlaut að líða. Allir höfðu eflaust einhverntímann fundið pöddu skríða á sér, en þessar pöddur störfuðu eftir mannlegri greind á bak við sig, að koma sér í augu, eyru, nef og munn. Þær unnu saman, allar með sama markmið, í stað þess að skríða huglaust þangað sem eðlishvatir þeirra beindu þeim.
+
+Ég veit ekki hvort það var útreiknað eða eitthvað sem hann gerði af skelfingu, en hann notaði kraftinn sinn. Hver og ein einasta padda sem snerti hann hvarf úr skynjun minni.
+
+Þegar ég gerði mér grein fyrir hvað hann hafði gert kallaði ég til baka allar pöddur sem höfðu ekki verið frystar. Ég vildi ekki að hann kafnaði, og hann var búinn að festa sig gjörsamlega með kraftinum sínum við götuna þar sem hann lá. Það versta sem gat gerst núna var að hann myndi örvænta, kúgast og kasta upp, kafna í eigin ælu. Ég gerði það sem í mínu valdi stóð til að afstýra því.
+
+Ég hafði unnið. Ég var ekki viss hvað ég ætti að finna fyrir. Ég fann fyrir einskonar fögnuði í bland við hljóðlátan hrylling yfir því sem ég hafði gert ofurhetju.
+
+Ég yrði að semja frið við þennan innri óróa síðar, og hvernig ég myndi fá Clockblocker til að fyrirgefa mér þetta. Það voru enn fimm Wards meðlimir og óþekktur aðili á þakinu sem þurfti að tækla, ef ég ætlaði að halda mér frá því að enda í fangelsi.
 
 ---
 
