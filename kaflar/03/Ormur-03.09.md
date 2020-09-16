@@ -112,4 +112,4 @@ Að fyrirmælum mínum þvinguðu fleiri pöddur sig inn undir búninginn hans o
 
 ---
 
-[Fyrri hluti](Ormur-03.07.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.08.md) - [Næsti hluti](Ormur-03.10.md)
