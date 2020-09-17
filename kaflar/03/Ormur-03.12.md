@@ -42,7 +42,7 @@ Hvað sem Tattletale var að gera, skynjaði ég að það væri að gefa okkur 
 
 Glory Girl kreppti hnefana, "Ég get ekki samþykkt það. Ég kalla blöffið þitt og ef ég hef rangt fyrir mér mun ég taka afleiðingum þess sem þú ert að fara að segja."
 
-"Mjög reglufast. Mjög sjálfhverft líka, að þú haldir að leyndarmálið og afleiðingarnar hafi eitthvað með skort þinn á sjálfstjórn að gera. Þær hafa ekkert með það að gera. Þær hafa með hana að gera." Tattletale miðaði leysibendinum á ennið á Panaceu, "Þú verður vitaskuld ekki sátt með það sem þú munt heyra, en eftirmálarnir verða hennar takast á við. Niðurlæging, skömm, sorg."
+"Mjög reglufast. Mjög sjálfhverft líka, að þú haldir að leyndarmálið og afleiðingarnar hafi eitthvað með skort þinn á sjálfstjórn að gera. Þær hafa ekkert með það að gera. Þær hafa með hana að gera." Tattletale miðaði leysibendinum á ennið á Panaceu, "Þú verður vitaskuld ekki sátt með það sem þú munt heyra, en eftirmálarnir verða hennar að takast á við. Niðurlæging, skömm, sorg."
 
 Ég fann að Panacea stífnaði upp.
 
@@ -56,29 +56,29 @@ Glory Girl kreppti hnefana, "Ég get ekki samþykkt það. Ég kalla blöffið �
 
 Panacea reif sig skyndilega úr haldi mínu, svo heiftarlega að ég rétt náði að fjarlægja hnífinn svo hún skæri ekki sjálfa sig á háls þegar hún losaði sig frá mér.
 
-Tattletale stökk til baka og hélt skrifborði milli sín og Panaceu, en Glory Girl flaug á hana og sveif með hana yfir endilangt rýmið. Þær staðnæmdust rétt áður en þær hefðu skollið á veggnum í hinum endanum. Ekki það að Tattletale væri alveg ómeidd. Glory Girl þrýsti Tattletale upp að veggnum, með aðra höndina yfir munninn á henni og hélt henni þar.
+Tattletale stökk til baka og hélt skrifborði milli sín og Panaceu, en Glory Girl flaug á hana og sveif með hana yfir endilangt rýmið. Þær staðnæmdust rétt áður en þær hefðu skollið í vegginn í hinum endanum. Ekki það að Tattletale væri alveg ómeidd. Glory Girl þrýsti Tattletale upp að veggnum, með aðra höndina yfir munninn á henni og hélt henni þar.
 
-Á meðan Panacea horfði á eftir þeim færði ég hnífinn í vinstri höndina og tók fram kylfuna mína. Ég tók í gikkinn í miðri sveiflu og leyfði skriðþunganum að draga hana út í fulla lengd. Panacea sá mig koma en ég held hún hafi ekki áttað sig á hverju ég hélt á. Útdregin kylfan hæfði hana þvert yfir höfuð hennar. Hún skjögraði örfá skref áður en hún skall hart í marmaragólfið.
+Á meðan Panacea horfði á eftir þeim færði ég hnífinn í vinstri höndina og tók fram kylfuna mína. Ég tók í gikkinn í miðri sveiflu og leyfði skriðþunganum að draga hana út í fulla lengd. Panacea sá mig koma en ég held hún hafi ekki áttað sig á hverju ég hélt. Útdregin kylfan hæfði hana þvert yfir höfuð hennar. Hún skjögraði örfá skref áður en hún skall hart í marmaragólfið.
 
 Því miður fyrir mig sá Glory Girl þetta allt gerast.
 
-"Enginn kemst upp með að abbast upp á fjölskylduna mína!" öskraði hún og skrúfaði áruna sína upp í topp. Hnén á mér gáfu undan og heilinn minn gafst upp á rökhugsun. Glory Girl fleygði Tattletale í mig eins og krakki í frekjukasti að kasta frá sér tuskudúkku og ég stóð bara þarna eins og dádýr starandi í bílljósin.
+"Enginn kemst upp með að abbast svona upp á fjölskylduna mína!" öskraði hún og skrúfaði áruna sína upp í topp. Hnén á mér gáfu undan og heilinn minn gaf alla rökhugsun upp á bátinn. Glory Girl fleygði Tattletale í mig eins og krakki í frekjukasti að kasta frá sér tuskudúkku og ég stóð bara þarna eins og dádýr starandi í bílljósin.
 
-Líkami Tattletale skall í miðhlutann á mér og ég missti gjörsamlega andann. Við runnum til baka eftir marmaragólfinu og skullum á skrifborði svo harkalega að tólvuskjár og plastkassi fullur af pappírum hrundu í gólfið. Pappír skjábrot dreifðust yfir gólfið.
+Líkami Tattletale skall í miðhlutann á mér og ég missti gjörsamlega andann. Við runnum til baka eftir marmaragólfinu og skullum á skrifborði svo harkalega að tólvuskjár og plastkassi fullur af pappírum hrundu í gólfið. Pappír og mölvaður skjárinn dreifðust yfir gólfið.
 
 Við lágum báðar í gólfinu þegar Glory Girl sveif í áttina til okkar. Ég barðist án árangurs að anda að mér lofti ofan í lungun á meðan Tattletale hélt öðrum handleggnum þétt upp að sér og kveinkaði sér.
 
-"Ég ætla mér að innkalla alla þá greiða sem ég hef unnið mér inn og koma mér í skuld við héraðsdómstóla og alla þá sem þarf, til að fá í gegn að þið verðið bæði send í Bridcage fangelsið," lofaði Glory Girl, "Vitið þið hvernig staður það er? Fangelsi án varða. Engin samskipti við umheiminn. Enginn hefur sloppið þaðan, sem er nokkuð magnað þegar hugsað er út í verstu og öflugustu illmennin sem við höfum handsamað og sent þangað. Við vitum ekki einu sinni með fullri vissu hvort einhver sé í raun á lífi þar inni. Þetta er bara eilífðar ruslakarfa sem við fleygjum sorpi eins og ykkur svo við þurfum aldrei að hafa áhyggjur af ykkur aftur."
+"Ég ætla mér að innkalla alla þá greiða sem ég hef unnið mér inn og koma mér í skuld við dómstóla borgarinnar og bara alla þá sem þarf, til að fá í gegn að þið verðið bæði send beina leið í Bridcage fangelsið," lofaði Glory Girl, "Vitið þið hvernig staður það er? Fangelsi án varða. Engin samskipti við umheiminn. Enginn hefur sloppið þaðan, sem er nokkuð magnað þegar hugsað er út í verstu og öflugustu illmennin sem við höfum handsamað og sent þangað. Við vitum ekki einu sinni með fullri vissu hvort einhver sé í raun á lífi þar inni. Þetta er bara eilífðar ruslakarfa sem við fleygjum sorpi eins og ykkur svo við þurfum aldrei að hafa áhyggjur af því aftur."
 
 "Pöddur," rembdist Tattletale við að segja við mig, nánast of lágróma til að heyra.
 
-Ég skildi ekki hvað hún meinti, en var enn að berjast við að draga andann, svo ég sneri mér svo ég sæi í áttina að henni og hristi höfuðið.
+Ég skildi ekki hvað hún var að fara, en var enn að berjast við að draga andann, svo ég sneri mér svo ég sæi í áttina að henni og hristi höfuðið.
 
 "Og engin samskipti við umheiminn þýðir að þið séuð ekki að fara að dreifa upplýsingum hvað sem það er sem Amy vill halda leyndu. Ég treysti systur minni, ég treysti að hún hafi góða og gilda ástæðu til að halda því útaf fyrir sig."
 
 "Pöddur. Á hana," sagði Tattletale og tók fjölda stuttra andardrátta á milli og eftir að hún sagði það.
 
-Ég skildi hana. Ég teygði mig í vald yfir pöddunum í rýminu og var glöð að finna að krafturinn minn virkaði fullkomlega. Skemmdarverk Panaceu höfðu horfið þegar ég drap köngulærnar sem hún hafði átt við. Ég sigaði hverri einustu pöddu sem ég hafði vald yfir á Glory Girl.
+Ég skildi hana. Ég teygði mig í vald yfir pöddunum í rýminu og var glöð að finna að krafturinn minn virkaði fullkomlega. Skemmdarverk Panaceu höfðu horfið þegar ég drap köngulærnar sem hún hafði einhvernveginn átt við. Ég sigaði hverri einustu pöddu sem ég hafði vald yfir á Glory Girl.
 
 Vonlaust. Það var eins og ég hefði sent þær á óeðlilega sterkt og slétt gler.
 
@@ -88,7 +88,7 @@ Tattletale notaði góðu höndina sína til að rétta sig við og stundi, "Í 
 
 Síðan greip hún með góðu höndinni litla skammbyssu úr beltinu og beindi henni að Glory Girl.
 
-Hvellurinn gerði mig hálfheyrnarskerta. Bíómyndir og sjónvarpsþættir gerðu því ekki nægilega góð skil hversu háir hvellirnir væru úr byssum í raunvöruleikanum. Það tók mig nokkrar sekúndur að fá heyrnina aftur og ná áttum. Þá loks áttaði ég mig á því að pöddurnar mínar höfðu brotist í gegn. Þær fundu hold að grípa í, bíta, stinga, klóra og gata. Glory Girl féll eins og steinn í marmaragólfið og byrjaði að berjast um af ofsa, heift og hálfgerðri örvæntingu.
+Hvellurinn gerði mig tímabundið hálfheyrnarskerta. Bíómyndir og sjónvarpsþættir gerðu því ekki nægilega góð skil hversu háir hvellirnir væru frá byssuskotum í raunvöruleikanum. Það tók mig nokkrar sekúndur að fá heyrnina aftur og ná áttum. Þá loks áttaði ég mig á því að pöddurnar mínar höfðu brotist í gegn. Þær fundu hold að grípa í, bíta, stinga, klóra og gata. Glory Girl féll eins og steinn í marmaragólfið og byrjaði að berjast um af ofsa, heift og hálfgerðri örvæntingu.
 
 "Hjálpaðu mér á fætur," sagði Tattletale með þvingaðri röddu, "að nota kraftinn minn svona sterkt á þær tók mikið úr mér."
 
