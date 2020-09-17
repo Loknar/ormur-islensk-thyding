@@ -4,7 +4,7 @@
 
 Stelpan starði á mig í gegnum úfið krullað brúnt hárið. Hún hélt á slökkvitæki í höndunum. Fyrir aftan hana sá ég gíslana streyma upp tröppurnar upp á aðra hæð. Það var ruglandi vegna þess að krafturinn minn sagði mér að pöddurnar á þeim væru enn staðsettar kyrrar upp við veggi og úti í hornum í anddyrinu. Ég fann eina könguló hreyfast hægt upp og niður í takt við andardrátt manneskjunnar sem hún átti að vera á og ég hrökk við þegar ég spottaði manneskjuna næstum detta í stiganum sökum þess hvað hún var að flýta sér að komast í burtu.
 
-Ég teygði mig í vald yfir pöddunum, reyndi að segja einni þeirra að hreyfa sig og allt fór í rugl. Það voru engin orð sem lýstu því almennilega. Þetta var eins og röng svörun. Ef heilinn á mér væri tölva, leið mér eins og það eina sem kæmi upp á skjáinn væru hundruðir eða þúsundir villuskilaboða. Það var sárskaukafullt eins og fjóldi skella sem létu mér líða eins og verið væri að nota heilann minn sem box púða.
+Ég teygði mig í vald yfir pöddunum, reyndi að segja einni þeirra að hreyfa sig og allt fór í rugl. Það voru engin orð sem lýstu því almennilega. Þetta var eins og röng svörun. Ef heilinn á mér væri tölva, leið mér eins og það eina sem kæmi upp á skjáinn væru hundruðir eða þúsundir villuskilaboða. Það var sárskaukafullt eins og fjöldi skella sem létu mér líða eins og verið væri að nota heilann minn sem box púða.
 
 Ég þrýsti höndinni að höfðinu á mér og engdist af sársauka sem var ekki bara tilkominn af högginu frá slökkvitækinu. Höfuðverkurinn var að nálgast mjög slæmt tilfelli af mígreni og mig langaði mest að rífa af mér grímuna og kasta upp til að losna við ógleðina sem var að safnast upp. Ég var að fá hugmynd um hvað það gat verið sem lét mér líða svona.
 
@@ -124,7 +124,7 @@ Glory Girl horfði á Tattletale með fyrirlitningarsvip en hreyfði sig ekki.
 
 "Þú dregur upp byssu úr skúffunni," hótaði Glory Girl, "og ég mun mylja þig."
 
-"Þú ættir að venja þig af því að hafa í hótunum sem þú getur ekki staðið við. Þetta er ekki byssa," Tattletale glotti og lyfti höndunum. Lyklakippa hékk á vinstri þumlinum hennar.
+"Þú ættir að venja þig af því að hafa í hótunum sem þú getur ekki staðið við. Að auki er þetta ekki byssa," Tattletale glotti og lyfti höndunum. Lyklakippa hékk á vinstri þumlinum hennar.
 
 "Lyklar," sagði Glory Girl.
 
@@ -142,19 +142,19 @@ Glory Girl lyfti annarri augabrúninni.
 
 "Engin ástæða til að gera það ekki. Reyndar er það mér í vil að upplýsa þig um það. Ég les hugsanir. Ég las hugsanir hans þegar við tókum hann sem gísl, eins og ég er að lesa hugsanir þínar akkúrat núna," lygin var svo góð að ég trúði henni næstum því sjálf.
 
-Rauður glampi vakti athygli mína. Rauður punktur frá leysibendi settist á hettuna á jakka Panaceu. Ég leit á Tattletale og sá að hún hélt á leysibendi á lyklakippu í höndinni sem folduð var í áttina að mér. Ég horfði á hana teikna hring með leysipennanum kringum staðinn á jakkanum hennar Panaceu sem hún hafði bent á.
+Rauður glampi vakti athygli mína. Rauður punktur frá leysibendi settist á hettuna á jakka Panaceu. Ég leit á Tattletale og sá að hún hélt á leysibendi á lyklakippu í höndinni sem folduð var í áttina að mér. Ég horfði á hana teikna hring með leysipennanum í kringum staðinn á jakkanum hennar Panaceu sem hún hafði áður bent á.
 
-"Kjaftæði," sagði Glory Girl, "Hugsanagetan sem þú þarft til að túlka og þýða einstök taugamynstur einhvers þyrfti fimm sinnum stærri heila en venjuleg manneskja er með. Alvöru hugsanalesarar eru ekki til."
+"Kjaftæði," sagði Glory Girl, "Hugsanagetan sem þarf til að túlka og þýða einstök taugamynstur einhvers þyrfti fimm sinnum stærri heila en venjuleg manneskja er með. Alvöru hugsanalesarar eru ekki til."
 
-"Ah, einhver er í Paramenni hundrað og einn í háskólanum. Toguðu foreldrar þínir í einhverja spotta, fengu að skrá þig í háskólakúrsa áður en þú ert búin með menntaskólann?"
+"Ah, einhver er í Paramenni hundrað og einn í háskólanum. Kölluðu foreldrar þínir inn greiða hjá einhverjum, fengu að skrá þig í háskólakúrsa áður en þú hefur lokið menntaskóla?"
 
-"Ég held að þú vitir svarið nú þegar, en ég kaupi ekki að þú sért að lesa hugsanir mínar til að fatta það."
+"Ég held að þú vitir svarið nú þegar, en ég kaupi ekki að þú sért að lesa hugsanir mínar til að komast að því."
 
-"Hvers vegna er svona erfitt að trúa því? Legend getur skotið leysigeislum úr augunum á sér, leysigeislum sem geta skipt um stefnu. Clockblocker og Vista geta ruglað með grundvallarlögmál alheimsins, rúm og tíma. Kaiser getur búið til málm úr lausu lofti. Varðveisla massa, varðveisla orku, grunnlögmál alheimsins eru brotin af skikkjum alla daga. Allt er þetta mögulegt, en það er ómögulegt að ég geti gægst inn í heilann á þér?"
+"Hvers vegna er svona erfitt að trúa því? Legend getur skotið leysigeislum úr augunum á sér, leysigeislum sem geta beygt fyrir horn. Clockblocker og Vista geta ruglað með grundvallarlögmál alheimsins, rúm og tíma. Kaiser getur skapað málm úr engu. Varðveisla massa, varðveisla orku, grunnlögmál alheimsins eru brotin af skikkjum alla daga. Allt er þetta mögulegt, en það er ómögulegt að ég geti gægst inn í heilann á þér?"
 
-Tattletale var ennþá lýsandi leisibendinum á hettuna á Panaceu. Þar sem ég var eina manneskjan með sjónarhorn til að sjá það gat það ekki verið annað en til að hjálpa mér. Ég dró hettuna aftur, athugaði innan í hana og fann ekkert. En á hálsinum á henni kom ég auga á eina svörtu ekkju köngulóna mína.
+Tattletale var ennþá lýsandi leisibendinum á hettuna á Panaceu. Þar sem ég var eina manneskjan sem gat séð það varð mér ljóst að hún var að reyna að benda mér á eitthvað. Ég dró hettuna aftur, athugaði innan í hana og fann ekkert. En í hálsmálinu á Panaceu kom ég auga á eina svarta ekkju, köngulóna mína.
 
-Ég tók hana varlega af henni og fann sársaukann í höfðinu ágerast við snertinguna, hreyfinguna. Annaðhvort af einhverjum hvötum eða óvart við sársaukann kramdi ég hana milli fingranna.
+Ég tók hana varlega af henni og fann sársaukann í höfðinu aukast við snertinguna, hreyfinguna. Annaðhvort af einhverjum hvötum eða óvart við sársaukann kramdi ég hana milli fingranna.
 
 Um leið féll verkurinn í höfðinu á mér í brot af því sem hann hafði verið. Léttirinn var svo mikill að ég fann nánast til vellíðunar. Ég skildi samt ekki alveg hvað Panacea hafði gert, en ég var að fá meiri og meiri hugmynd um það. Hún hafði einhvernveginn komist að því hvernig ég stjórnaði köngulónum og hafði svo líklega átt við köngulóna svo hún skilaði ekki réttum upplýsingum til mín. Stöðugt streymi gallaðra upplýsinga, eins og þegar þjófar í bíómyndum hökkuðu myndavélakerfi til að sýna sama hlutinn aftur og aftur. Annaðhvort fyrir tilviljun eða viljandi hafði það stigmagnandi truflunaráhrif á mig í hvert sinn sem krafturinn minn ráðskaðist með umrædda könguló. Sem að endingu leiddi til einskonar skammhlaups í kraftinum mínum.
 
