@@ -24,7 +24,7 @@ Maðurinn leit um öxl, eins og hann væri að vega og meta mögulegar flóttale
 
 "Ég gerði ekkert sem vert er að hugsa um," sagði hann háðslega. Uppgert hugrekki hans rofnaði við að hann leit aftur um öxl, líkt og hann langaði að vera einhverstaðar annarstaðar akkúrat þessa stundina.
 
-Hún flaug í átt til hans og greip með annarri í kragann hans. Í smá stund íhugaði hún að skella honum upp við húsvegg. Það hefði verið viðeigandi og uppfyllandi að skella honum nógu fast í múrsteinavegginn til að mynda sprungur í múrsteinana, fleygja honum svo í ruslagáminn við hlið þeirra.
+Hún flaug í átt til hans og greip með annarri höndinni í kragann á flikinni hans og lyfti honum upp. Í smá stund íhugaði hún að skella honum upp við húsvegg. Það hefði verið viðeigandi og gefandi að skella honum nógu fast í múrsteinavegginn til að brjóta múrsteinana, fleygja honum svo í ruslagáminn við hlið þeirra.
 
 Þess í stað sveif hún með hann upp og staðnæmdist. Þau voru nógu hátt yfir jörðinni til að honum liði illa með hæðina. Ruslagámurinn, hálftómur, var beint fyrir neðan hann en hún efaðist um að hann veitti öðru en henni einni athygli.
 
