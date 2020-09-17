@@ -48,7 +48,7 @@ Hundarnir tveir og Aegis lentu af miklu afli á vegg skrifstofuhússins á móti
 
 Skyndilega beindi Kid Win fallbyssunni í átt að mér.
 
-Ég stökk í skjól um leið og ég áttaði mig á hvað hann var að fara að gera. Það heyrðist dempað hljóð, meira eins og hnefi að lenda í æfingapúða en hljóð sem ég ímyndaði mér að kæmi úr stórri leysibyssu, og glugginn sprakk.
+Ég stökk í skjól um leið og ég áttaði mig á hvað hann var að fara að gera. Það heyrðist dempað hljóð, meira eins og hnefi að lenda í box púða en hljóð sem ég hafði ímyndað mér að kæmi úr stórri leysibyssu, og glugginn sprakk.
 
 Hvað var hann að spá? Við vorum með gísla hérna inni. Ég leit við til að athuga hvort einhver þeirra hefði slasast, en sá enga. Vissi hann það? Hitaskynjari í augnhlífinni hans? Var einhver kominn með aðgang að myndavélunum og beinandi upplýsingum til hans? Fjandinn hafi það! Það var of mikið sem ég vissi ekki og Tattletale var ekki til staðar til að fylla í eyðurnar.
 
@@ -92,4 +92,4 @@ Nánast í rólegheitunum stakk Regent sprotanum sínum í síðuna á Kid Win.
 
 ---
 
-[Fyrri hluti](Ormur-03.09.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.09.md) - [Næsti hluti](Ormur-03.11.md)
