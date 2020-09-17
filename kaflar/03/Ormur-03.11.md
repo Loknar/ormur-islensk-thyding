@@ -132,7 +132,7 @@ Glory Girl horfði á Tattletale með fyrirlitningarsvip en hreyfði sig ekki.
 
 "Í fyrsta lagi, hverjum er ekki sama? Í öðru lagi, hvernig veistu þetta?"
 
-"Halló," Tattletale brosti og foldaði hendurnar, "Illmenni hundrað og einn. Þú matar ekki hetjuna á upplýsingum með því að masa endalaust einhliða."
+"Halló," Tattletale brosti og foldaði hendurnar, "Illmenni hundrað og einn. Þú matar ekki hetjuna á upplýsingum með því að tala endalaust um sjálfa þig."
 
 "Ah," samþykkti Glory Girl, "mátti reyna."
 
