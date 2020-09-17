@@ -184,4 +184,4 @@ Tattletale beindi leysibendinum núna á upphandlegginn á Panaceu. Það tók m
 
 ---
 
-[Fyrri hluti](Ormur-03.10.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.10.md) - [Næsti hluti](Ormur-03.12.md)
