@@ -38,7 +38,7 @@ Hvað sem Tattletale var að gera, skynjaði ég að það væri að gefa okkur 
 
 Ég sá efasemdasvip renna yfir andlitið á Glory Girl.
 
-"Ég skal semja við þig, Glory Hole. Þú ferð inn í hvelfinguna, lokar þig inni, og ég skal ekki nefna það einu orði. Ég mun ekki segja setninguna sem mun rífa fjölskylduna þína í sundur."
+"Ég skal semja við þig, Glory Hole. Þú ferð inn í hvelfinguna, lokar þig inni, og ég skal ekki nefna það einu orði. Ég mun ekki segja setninguna sem mundi rífa fjölskylduna þína í sundur."
 
 Glory Girl kreppti hnefana, "Ég get ekki samþykkt það. Ég kalla blöffið þitt og ef ég hef rangt fyrir mér mun ég taka afleiðingum þess sem þú ert að fara að segja."
 
@@ -170,4 +170,4 @@ Hönd í hönd gengum við rólega í gegnum miðbæinn. Eins og allir aðrir ho
 
 ---
 
-[Fyrri hluti](Ormur-03.11.md) - Næsti hluti
+[Fyrri hluti](Ormur-03.11.md) - [Næsti hluti](Ormur-03.12.x.[Sjónarhorn;Wards].md)
