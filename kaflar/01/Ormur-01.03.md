@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Myndbreyting 1.3
 
 Æfingaáætlunin mín samanstóð af því að hlaupa á hverjum morgni og annan hvern eftirmiðdag. Í því ferli hafði ég öðlast nokkuð góða þekkingu á austurhluta borgarinnar. Á uppvaxtarárunum höfðu foreldrar mínir sagt mér hluti eins og "halda sig innan Boardwalk". Jafnvel á þessum hlaupatúrum mínum hafði ég haldið mig innan Boardwalk svæðisins og forðast skuggalegri hluta bæjarins. Núna var sunnudagskvöld og ég var úti búningsklædd og brjótandi reglurnar.

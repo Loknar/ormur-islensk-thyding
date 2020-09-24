@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Myndbreyting 1.6
 
 Ég heyrði skikkjuna mæta á staðinn á töluvert sérsmíðuðu mótorhjólinu sínu. Ég vildi ekki eiga á hættu að sjást flýja af vettvangi og vera í misgripum bendluð við að vera illmenni af enn einni manneskjunni, en ég færði mig heldur ekki nær götunni, ef svo vildi til að Lung liði betur. Þar sem hvorki kom til greina að hörfa né sækja fram hélt ég bara kyrru fyrir. Hvíldin ein sem fylgdi því lét mér líða betur.

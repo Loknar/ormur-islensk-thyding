@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Myndbreyting 1.5
 
 Þú áttar þig ekki almennilega á hvað ofurmannlegur styrkur þýðir fyrr en þú sérð einhvern stökkva frá gangstétt yfir á þak á nokkurra hæða húsi á hinni hlið götunnar. Hann dreif þó ekki alveg upp á þakið heldur lenti á hlið hússins í um þrjá fjórðu af leiðinni upp. Ég var ekki viss hvers vegna Lung féll ekki niður, en giskaði á að hann hefði grafið fingurna í klæðninguna.

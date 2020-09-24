@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Aðdróttun 2.2
 
 Morgunskokkið hjálpaði mér að vakna, það sama gilti um heitu sturtuna eftir skokkið og kaffibollann sem pabbi hafði skilið eftir í kaffivélinni. En þrátt fyrir þetta allt saman fann ég hvernig undirliggjandi þreytan gerði mig hálfdasaða á leið minni í skólann þvert á hve eðlilegur dagurinn virtist annars vera. Aðeins nokkrum klukkustundum áður hafði ég verið í bardaga upp á líf og dauða, og ég hafði hitt Armsmaster í eigin persónu. En nú var runninn upp dagur eins og hver annar.

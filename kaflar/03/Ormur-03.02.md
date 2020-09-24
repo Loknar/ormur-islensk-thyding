@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Æsingur 3.2
 
 Það kom mér skemmtilega á óvart að strætólínan sem endaði við gömlu ferjuna kom mér einungis í fimmtán til tuttugu mínútna göngufjarlægð frá risinu sem Lisa, Alec og Bitch bjuggu í. Ég gæti eytt góðum tíma þar áður en ég færi aftur í upplýsingaöflun eða ynni mér inn traust þeirra til að geta síðan komið þeim í hendur yfirvalda, svo það hentaði vel.

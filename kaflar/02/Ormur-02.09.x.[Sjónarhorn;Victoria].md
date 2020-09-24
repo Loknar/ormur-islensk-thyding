@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Aðdróttun 2.9.x - Sjónarhorn; Victoria
 
 Það voru mjög fáir hlutir, að mati Victoriu Dallon, sem voru svalari en að geta flogið. Ósýnilegi orkuskjöldurinn sem huldi líkama hennar nokkra millimetra utan við húð og föt gerði það enn betra. Hann varði hana fyrir mestu vindkælingunni en lét hana samt finna aðeins fyrir vindinum á húð hennar og hári. Pöddur klesstust ekki við andlitið á henni eins og á framrúðu á bíl, jafnvel þegar hún flaug á allt að hundrað og þrjátíu kílómetra hraða á klukkustund.

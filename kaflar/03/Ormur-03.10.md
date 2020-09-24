@@ -1,3 +1,5 @@
+*Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#Fyrirvari)*
+
 ### Æsingur 3.10
 
 Sex góðir gæjar voru enn í fullu fjöri, svo fremi sem ég vissi. Clockblocker var niðri og það stafaði engin hætta af honum lengur nema einhver gengi upp að honum og snerti hann, eða ef við værum hérna ennþá eftir tíu mínútur eða svo þegar pöddurnar sem hann frysti myndu losna. Angelica og Brutus voru að spila skelfilega hrollvekjandi reipitog með Aegis á milli sín í stað reipis.
