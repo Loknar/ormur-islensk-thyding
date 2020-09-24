@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Æsingur 3.4
 
 "Ég mæti þangað. Já-" Ég sá ljós í stofuglugganum og lagði hönd mína yfir neðri hluta farsímans á meðan ég athugaði málið nánar. Fjandinn, pabbi minn var enn heima. Ég lagði símann að eyranu, "Fyrirgefðu, ég verð að fara. Nei. Nei. Hlustaðu-"

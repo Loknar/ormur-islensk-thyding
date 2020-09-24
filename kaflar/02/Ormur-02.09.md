@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Aðdróttun 2.9
 
 Þegar við Brian lögðum af stað aftur upp í risið var ég meira en lítið áhyggjufull. Það var ekki bara að ég yrði í návígi við Bitch aftur, heldur þurfti ég líka að horfast í augu við Lisu og Alec. Eftir að hafa öskrað og talað um að hætta við að ganga í lið með þeim var ég nú komin aftur til baka. Hluti af mér vildi biðjast afsökunar, en stærri hluta langaði það ekki. Ég hafði verið í fullum rétti með allt sem ég hafði sagt og gert, ekki satt? Kannski var það vegna þess að ég var hvorki vön því að beita ofbeldi né að hækka raustina.

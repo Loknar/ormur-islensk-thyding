@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Myndbreyting 1.6.x - Sjónarhorn; Danny
 
 > Við vitum ekki hversu lengi hann hafði verið þarna. Svífandi yfir miðju Atlantshafi. Þann tuttugasta maí 1982 var farþegaskip komið hálfa leið frá hafnarborginni Plymouth við strendur Devon í Englandi til Boston á austurströnd Bandaríkjanna þegar farþegar urðu hans varir. Hann var nakinn, með hendur hangandi, og sítt hárið hans flöktandi í vindinum þar sem hann sveif í lausu lofti um þrjátíu metra fyrir ofan rólegt yfirborð sjávarins. Húð hans og hári er einungis hægt að lýsa sem dökk gullnu. Með engin önnur hár á líkamanum önnur en á höfðinu og allsnakinn, sjónarvottar hafa sagt að hann hafi litið gervilega út, líkt honum við listaverk eða styttu.

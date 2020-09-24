@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Aðdróttun 2.5
 
 Ef litið var á Brockton Bay sem bútasaum af flottheitum annarsvegar og krummaskuðum hinsvegar, efri stétt annarsvegar og lægri stétt hinsvegar með enga millistétt, þá var miðbærinn eitt af fallegu svæðunum. Götur og gangstéttir þar voru vel breiðar sem þýddi að þrátt fyrir skýjakljúf á annarri hverri lóð þá sást blár himininn vel á götum niðri.

@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Æsingur 3.9
 
 Ég gat rétt ímyndað mér hvernig þetta leit út fyrir Wards meðlimina sem voru saman komnir hérna. Á einu augnabliki voru þau stödd úti í grenjandi rigningunni bíðandi eftir að við létum til skara skríða. Á næsta augnabliki skutust útidyrahurðir bankans upp og afhjúpuðu ekkert nema algert myrkur. Örskömmu síðar sáu þau hóp gísla koma hlaupandi út um hurðina og hlaupa og falla niður tröppurnar fyrir framan bygginguna.

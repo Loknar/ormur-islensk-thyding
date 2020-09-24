@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Myndbreyting 1.2
 
 Hugsanir mínar voru um Emmu í strætóferðinni heim. Fyrir utanaðkomandi aðila held ég að auðvelt væri að gera lítið úr gildi "bestu vinkonu", en þegar þú ert barn þá er enginn mikilvægari. Við Emma höfðum verið bestu vinkonur  síðan í fyrsta bekk í grunnskóla. Það hafði ekki dugað okkur að eyða tíma okkar saman í skólanum, svo við skiptumst á að heimsækja hvora aðra um helgar. Ég man að mamma hafði sagt að við værum svo nánar að við værum eins og systur.

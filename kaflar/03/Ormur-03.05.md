@@ -1,5 +1,7 @@
 *Sagan Worm er skrifuð af og í eigu höfundarins J.C. McCrae, einnig þekktur sem Wildbow. Þú getur fundið upprunalega textann á [parahumans.wordpress.com](https://parahumans.wordpress.com/). Ef þú hefur gaman af þessari sögu endilega íhugaðu að [styrkja höfundinn](https://parahumans.wordpress.com/support/). Þessi þýðing er ekki beint tengd J.C. McCrae og við höfum engan rétt til grunnefnisins. Við höfum því engan rétt á að græða á þessari þýðingu og við ætlum okkur það ekki - eina markmiðið er að auðvelda íslenskumælandi fólki að upplifa söguna. [[Disclaimer in English]](../../README.md#fyrirvari)*
 
+---
+
 ### Æsingur 3.5
 
 "Þú þarft greiða," svaraði hann mér eins og hann þyrfti að segja það upphátt við sjálfan sig til að trúa því. Svarið sló mig út af laginu. Hafði ég alveg mislesið hann þessa nótt, þegar ég gaf honum heiðurinn af handtöku Lung og gerði ráð fyrir að hann yrði þakklátur?
