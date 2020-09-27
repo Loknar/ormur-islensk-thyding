@@ -300,17 +300,17 @@ Hann sneri sér að henni, "Svo hvað hefur þetta með það sem gerðist í ba
 
 Gallant kinkaði kolli.
 
-"Veistu hvernig það er, að tala við fólk eins og hana? Eins og þig, ég meina það ekki illa? Þú byggir upp þessa grímu, þú blekkir sjálfa þig að trúa að allt sé í himnalagi, og þú neyðir sjálfa þig að líta framhjá verstu þáttum sjálfs þíns ... og svo koma þessir Gallants og Tattletales og strípa þig nakta. Neyða þig til að horfast í augu við það allt saman."
+"Veistu hvernig það er, að tala við fólk eins og hana? Eins og þig, ég meina það ekki illa? Þú byggir upp þessa grímu, þú blekkir sjálfið til að trúa að allt sé í himnalagi, og þú neyðir sjálfið til að líta framhjá verstu þáttum sjálfs þíns ... og svo koma þessir Gallants og Tattletales og strípa þig nakta. Neyða þig til að horfast í augu við það allt saman."
 
 "Mér þykir það leitt."
 
-"Þú sagðir það sjálfur, þú hefur ekki vald til að slökkva á því, ekki satt? Ég get í raun ekki ásalað þér. Það er bara ... það er erfitt að vera til. Sérstaklega eftir að hafa tekist á við Tattletale."
+"Þú sagðir það sjálfur, þú hefur ekki vald til að slökkva á því, ekki satt? Ég get í raun ekki ásakað þig. Það er bara ... það er erfitt að vera til. Sérstaklega eftir að hafa tekist á við Tattletale."
 
 "Hvað sagði hún?"
 
 "Hún hótaði að tala um hluti. Hluti verri en það sem ég sagði þér núna áðan, hugsa ég. Hótaði að segja mér hluti sem ég vil ekki vita. Sagðist ætla að nota upplýsingar sem hún hafði til að eyðileggja samband mitt við Victoriu og rest fjölskyldu minnar," Amy faðmaði sjálfa sig.
 
-"Systir mín er allt sem ég hef. Eina manneskjan sem hleður ekki á mig væntingum, sem þekkir mig sem manneskju. Carol vildi mig eiginlega aldrei. Mark þjáist af klínísku þunglyndi, eins indæll og hann er, hann hefur í raun nóg með sjálfan sig, föðurhlutverkið situr á hakanum. Frænka mín og frændi eru indælisfólk en eiga sjálf nóg með sín eigin vandamál. Svo það erum bara ég og Victoria. Hefur verið þannig nánast frá upphafi. Þessi bansetta blaðurskjóðuskrímsli hótaði að rífa systur mína og mig í sundur með því að nota enn einn hlut sem ég bað ekki um, sem ég fékk engu um ráðið og hafði enga stjórn á."
+"Systir mín er allt sem ég hef. Eina manneskjan sem hleður ekki á mig væntingum, sem þekkir mig sem manneskju. Carol vildi mig eiginlega aldrei. Mark þjáist af klínísku þunglyndi, eins indæll og hann er, hann hefur í raun nóg með sjálfan sig, föðurhlutverkið hefur setið á hakanum. Frænka mín og frændi eru indælisfólk en eiga sjálf nóg með sig og sín eigin vandamál. Svo það erum bara ég og Victoria. Hefur verið þannig nánast frá upphafi. Þetta bansetta blaðurskjóðuskrímsli hótaði að rífa systur mína og mig í sundur með því að notfæra sér enn einn hlut sem ég bað ekki um, sem ég fékk engu um ráðið og hafði enga stjórn á."
 
 Gallant byrjaði að segja eitthvað en hætti.
 
@@ -332,13 +332,13 @@ Panacea fraus.
 
 "Móttekið," svaraði hún. Svo teygði hún sig til hans og snerti öxlina á honum, "Svona. Mar horfið, rifbein heilt."
 
-"Hafðu kærar þakkir," svaraði hann og opnaði dyrnar fyrir hana.
+"Kærar þakkir," svaraði hann og opnaði dyrnar fyrir hana.
 
-"Passaðu vel uppá systur mína, er það skilið? Gerðu hana hamingjusama?" muldraði hún hikandi í dyragættinni.
+"Passaðu vel uppá systur mína, skilið? Gerðu hana hamingjusama?" muldraði hún hikandi í dyragættinni.
 
 "Að sjálfsögðu." Þau sneru aftur til hinna.
 
-Allra augu festust á Panaceu þegar hún tók upp tússinn hjá tölvunum. Með eymdarsvip hóf hún að fylla út dálkinn á töflunni merktan Tattletale.
+Allra augu voru á Panaceu þegar hún tók upp tússinn hjá tölvunum. Með eymdarsvip hóf hún að fylla út dálkinn á töflunni merktan Tattletale.
 
 ---
 
