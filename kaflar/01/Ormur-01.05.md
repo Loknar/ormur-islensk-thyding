@@ -38,7 +38,7 @@ Lung hætti að sækja fram og sneri höfðinu hægt frá hægri til vinstri.
 
 Ég hélt í mér andanum og var eins kyrr og ég mögulega gat. Hvað gat ég gert? Ég var enn með piparúðann í höndinni, en jafnvel þó ég næði annarri bunu framan í hann mundi ég setja mig í stórhættu með að gefa honum staðsetninguna mína svo hann gæti ristað mig með eldtungunum sínum. Ef ég hreyfði mig mundi hann heyra í mér og ég mundi fá á mig annan eldflaum, líklega áður en ég næði að standa upp.
 
-Lung færði höndina af andlitinu sínu. Hann blikkaði auganu nokkrum sinnum, leit svo í kringum sig og blikkaði svo auganu nokkrum sinnum í viðbót. Það var núna sekúnduspursmál hvenær hann sæi nógu vel til að greina hvar ég væri. Átti ekki piparúði að taka menn út í allt að hálftíma? Hvernig var þetta skrímsli ekki á A-lista?
+Lung færði höndina af andlitinu sínu. Hann blikkaði auganu nokkrum sinnum, leit svo í kringum sig og blikkaði svo auganu nokkrum sinnum í viðbót. Það var núna sekúnduspursmál hvenær hann sæi nógu vel til að greina hvar ég væri. Átti ekki piparúði að taka menn út í allt að hálftíma? Hvernig var þetta skrímsli ekki í A-flokki?
 
 Hann hreyfði sig skyndilega, logarnir á höndunum hans uxu gríðarlega og ég skellti aftur augnunum.
 
