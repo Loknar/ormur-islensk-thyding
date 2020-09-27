@@ -10,7 +10,7 @@ Fólk sem kom inn í anddyrið horfði upp á undarlegar andstæður að verki. 
 
 Í algjöra andstöðu við þetta var gjafavöruverslun sem var oft yfirfull af unglingum eftir skólatíma, þar sem boðið var upp á ýmiskonar ofurhetjubardagafígúrur, veggspjöld, tölvuleiki og fatnað. Yfir metersháar myndir af hinum ýmsu Protectorate og Wards meðlimum voru upphengdar með reglulegu millibili umhverfis anddyrið, hver mynd björt og litrík.
 
-Það var hress fararstjóri bíðandi þolinmóður við afgreiðsluborðið, hann brosti hlýlega að hverjum þeim sem leit til hans. Á ákveðnum tímum var hann með kynnisferðir fyrir ferðamenn og börn um PRT skrifstofurnar, vopnabúrin, æfingasvæðin og bílastæðin með paramenna aðgerðaráætlana sendibílunum, sýnandi þeim hvað þurfti til að stýrja hetjum svæðisins. Fyrir þá sem tímdu að borga fyrir dýrustu kynnisferðina og nenntu að bíða í tvær klukkustundir og þola fylgd teymis af PRT öryggisvörðum þá var auka stopp í lok skoðunarferðarinnar - að fá að sjá höfuðstöðvar Wards deildarinnar.
+Það var hress fararstjóri bíðandi þolinmóður við afgreiðsluborðið, hann brosti hlýlega að hverjum þeim sem leit til hans. Á ákveðnum tímum var hann með kynnisferðir fyrir ferðamenn og börn um PRT skrifstofurnar, vopnabúrin, æfingasvæðin og bílastæðin með paramenna aðgerðaráætlana sendibílunum, sýnandi þeim hvað þurfti til að stýra hetjum svæðisins. Fyrir þá sem tímdu að borga fyrir dýrustu kynnisferðina og nenntu að bíða í tvær klukkustundir og þola fylgd teymis af vopnuðum PRT öryggisvörðum þá var auka stopp í lok skoðunarferðarinnar - að fá að sjá höfuðstöðvar Wards deildarinnar.
 
 Á meðan illa leikið teymi ungra ofurhetja skjögraði inn anddyrið voru þó engar kynnisferðir, einungis þéttvaxin kona með snúð í hárinu. Hún var í dökkbláum jakkafötum og pilsi, hún beið ásamt tveimur alvörugefnum útlítandi mönnum í jakkafötum fyrir aftan hana. Orðlaust beindi hún þeim inn um dyr fyrir aftan afgreiðsluborðið inn í fundarherbergi.
 
@@ -32,11 +32,11 @@ Glottið á Aegis hvarf. Hann leit um öxl á félaga sína. Gallant, Kid Win, V
 
 "Já frú. Við töpuðum." viðurkenndi Gallant.
 
-"Þið töpuðuð, já. Það er í raun aukaatriði. Þið olluð líka hræðilegu eignatjóni. Ég er hrædd um að öll eyðilegging af völdum undrabarnsins úr New Wave teyminu sé einnig á ykkar árbyrgð, þar sem þið buðuð henni með ykkur. Án þess að ráðfæra ykkur við mig."
+"Þið töpuðuð, já. Það er í raun aukaatriði. Þið olluð líka gríðarlega miklu eignatjóni. Ég er hrædd um að öll eyðilegging af völdum undrabarnsins úr New Wave teyminu sé einnig á ykkar árbyrgð, þar sem þið buðuð henni með ykkur. Án þess að ráðfæra ykkur við mig."
 
-"Ég bauð henni," sagði Gallant, "ég tek á mig sökina og þú getur tekið kostnað vegna eignatjónsins úr traustasjóðnum mínum."
+"Ég bauð henni," sagði Gallant, "ég tek á mig sökina og þú getur tekið kostnað vegna eignatjónsins úr traustsjóðnum mínum."
 
-Aðgerðastjóri Piggot svaraði honum með þunnu og algjörlega gleðisnauðu brosi, "Verið að reyna að standa undir nafni þínu heyri ég? Já, ég er viss um að það er besta leiðin til að koma skilaboðunum áleiðis. Liðsfélagar þínir og ég vitum öll hver þú ert undir grímunni. Af öllum viðstöddum ert þú best í stakk búinn að greiða tugi þúsunda dala í skaðabætur."
+Aðgerðastjóri Piggot svaraði honum með þunnu og algjörlega gleðisnauðu brosi, "Verið að reyna að standa undir nafni þínu heyri ég? Já, ég er viss um að það er besta leiðin til að koma skilaboðunum áleiðis. Liðsfélagar þínir og ég vitum öll hver þú ert á bak við grímuna. Af öllum viðstöddum ert þú best í stakk búinn að greiða tugi þúsunda dala í skaðabætur."
 
 "Ég neita því ekki, frú," svaraði Gallant hálfkæfðum orðum.
 
