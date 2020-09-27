@@ -140,4 +140,4 @@ Morðingi. Ég varð að minna sjálfa mig á það. Eitt þeirra þriggja var m
 
 ---
 
-[Fyrri kafli](../03/Ormur-03.12.x.[Sjónarhorn;Wards].md) - Næsti hluti
+[Fyrri kafli](../03/Ormur-03.12.x.[Sjónarhorn;Wards].md) - [Næsti hluti](Ormur-04.02.md)
