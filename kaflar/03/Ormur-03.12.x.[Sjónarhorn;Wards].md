@@ -44,7 +44,7 @@ Aðgerðastjóri Piggot svaraði honum með þunnu og algjörlega gleðisnauðu 
 
 Nokkur ungmennanna mótmæltu samtímis, ofaní hvert annað, "Systir hennar var í bankanum. Hún hefði farið hvort eð er!" "Ég byrja í háskóla næsta haust!"
 
-Aðgerðastjóri Piggot svaraði mótmælunum og kvörtununum á engan hátt. Meira sjálfhverf manneskja hefði jafnvel haldið því fram að hún nyti þess að heyra þau. Þegar tæpar tvær mínútur voru liðnar og ljóst var að hún væri ekki að fara að svara eða láta draga sig í rifrildi þögnuðu ungu hetjurnar ein af annarri. Hún ræskti sig og hóf að tala aftur.
+Aðgerðastjóri Piggot svaraði mótmælunum og kvörtununum á engan hátt. Meira sjálfhverf manneskja hefði jafnvel haldið því fram að hún nyti þess að heyra þau. Þegar tæpar tvær mínútur voru liðnar og ljóst var að hún væri ekki að fara að svara eða láta draga sig í nein rifrildi þögnuðu ungu hetjurnar ein af annarri. Hún ræskti sig og hóf að tala aftur.
 
 "Kid Win. Ég hef mikinn áhuga á að heyra um þetta vopn sem þú beittir í bardaganum."
 
@@ -74,7 +74,7 @@ Aðgerðastjóri Piggot gretti sig, "Tíminn og peningarnir sem færu í það, 
 
 Kid Win nánast lufsaðist niður af létti.
 
-"En hver sem orkugjafinn er, þá fjarlægirðu hann úr henni og ég geymi hana læsta inni bak við lás og slá. Ef svo ólíklega vill til að A-flokks ógn kemur upp, mun ég afhenda þér hann. Og fallbyssan verður látin fara í gegnum venjulega ferlið eins og allar aðrar Tinker uppfinningar. Ef hún fær falleinkun í því ferli, ef þú settir fólk og eignir í stórhættu með því sem þú dróst í dag, þá er ég hrædd um að þú gætir átt yfir höfði þér enn hærri sektargreiðslu og jafnvel fangelsistíma."
+"En hver sem orkugjafinn er, þá fjarlægirðu hann úr henni og ég geymi hann læstan inni bak við lás og slá. Ef svo ólíklega vill til að A-flokks ógn kemur upp, mun ég afhenda þér hann. Og fallbyssan verður látin fara í gegnum venjulega ferlið eins og allar aðrar Tinker uppfinningar. Ef hún fær falleinkun í því ferli, ef þú settir fólk og eignir í stórhættu með því sem þú dróst fram í dag, þá er ég hrædd um að þú gætir átt yfir höfði þér enn hærri sektargreiðslu og jafnvel fangelsistíma."
 
 Kid Win fölnaði.
 
@@ -84,7 +84,7 @@ Kid Win fölnaði.
 
 Kid Win leit í átt til Aegis og gaf honum lítið fyrirgefningarbros.
 
-"Kid Win, þú kemur með okkur á agafund. Þið hin megið fara. Næsti ferðahópur kemur í skoðunarferð um rýmin ykkar eftir klukkustund, og það eru miklar líkur á að einhverjir fréttamenn verði glápandi inn um gluggana. Reynið að þvo ykkur og vera vel útlítandi fyrir myndirnar sem eru vafalaust að fara að birtast í blöðum morgundagsins. Vinsamlegast."
+"Kid Win, þú kemur með okkur á agafund. Þið hin megið fara. Næsti ferðahópur kemur í skoðunarferð um rýmin ykkar eftir klukkustund, og það eru miklar líkur á að einhverjir fréttamenn verði glápandi inn um gluggana. Reynið að þvo ykkur og vera vel útlítandi fyrir myndirnar sem eru vafalaust að fara að birtast í blöðum morgundagsins. Ef þið vilduð vera svo væn."
 
 Jakkafataklæddu mennirnir tveir gengu með niðurlútan Kid Win á milli sín á eftir Aðgerðastjóra Piggot. Kid Win leit áhyggjufullum augum á liðsfélaga sína áður en hann hvarf úr augsýn.
 
@@ -100,7 +100,7 @@ Teymið álpaðist út úr fundarherberginu og í frátekna lyftu. Lyftan var Ti
 
 "Gerir þú það ekki venjulega?" spurði Clockblocker.
 
-"Sjónhimnan mín er mögulega sködduð," viðurkenndi Aegis með ónýtri rödd sinni, "vil ekki setja viðvörunarkerfið í gang með misheppnaðri augnskönnun."
+"Sjónhimnan mín er mögulega mikið sködduð," viðurkenndi Aegis með ónýtri rödd sinni, "vil ekki setja viðvörunarkerfið í gang með misheppnaðri augnskönnun."
 
 Clockblocker kinkaði kolli hikandi og hallaði sér síðan fram til að láta stjórnstöðina skima augun hans. Smellir heyrðust í tvískiptri stálhurð sem síðan opnaðist nánast hljóðlaust fyrir ungu hetjurnar sem héldu inn í aðalrými höfuðstöðva sinna.
 
@@ -342,4 +342,4 @@ Allra augu voru á Panaceu þegar hún tók upp tússinn hjá tölvunum. Með ey
 
 ---
 
-[Fyrri hluti](Ormur-03.12.md) - Næsti kafli
+[Fyrri hluti](Ormur-03.12.md) - [Næsti kafli](../04/Ormur-04.01-Skel.md)
