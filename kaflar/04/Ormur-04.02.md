@@ -6,7 +6,7 @@
 
 "Við ætlum að uppfæra fataskápinn þinn," ákvað Lisa eftir að við höfðum skilið við strákana.
 
-"Er eitthvað athugavert við fötin sem ég klæðist?" spurði ég, svolítið varnarlega.
+"Hvað er að fataskápnum mínum?" spurði ég, svolítið varnarlega.
 
 "Ekkert, svosem. Það er bara svo mikið ... þú. Sem er vandamálið."
 
@@ -24,7 +24,7 @@
 
 "Hvað kemur þetta fötunum mínum við?"
 
-"Persónuleiki þinn endurspeglast í fatavalinu þínu. Þaggaðir litir. Brúnt, grátt, svart, hvítt. Ef þú ert klædd í eitthvað litríkt þá ertu eingöngu í því innan undir aðra flík, peysu eða jakka. Aldrei neitt sem er áberandi. Sýnir aldrei mikla húð. Á meðan flest okkar erum að velja á okkur föt til að smíða sjálfsmynd til að sýna út á við, til að passa inn í einhvern hóp eða klíku, þá ert þú að einbeita þér að því að halda þig utan sviðsljóssins og vera sem minnst áberandi. Þú ert of varkár, ofhugsar hlutina meira en þú þarft, tekur alltaf öruggasta leikinn í boði."
+"Persónuleiki þinn endurspeglast í fatavalinu þínu. Þaggaðir litir. Brúnt, grátt, svart, hvítt. Ef þú ert klædd í eitthvað litríkt þá ertu eingöngu í því innan undir aðra flík, peysu eða jakka. Aldrei neitt sem er áberandi. Sýnir aldrei mikla húð. Á meðan flest okkar erum að velja á okkur föt til að smíða sjálfsmynd til að sýna út á við, til að passa inn í einhvern hóp eða klíku, þá ert þú að einbeita þér að því að halda þig utan sviðsljóssins og vera sem minnst áberandi. Þú ert of varkár, ofhugsar hlutina meira en þú þarft, tekur alltaf öruggasta valkostinn í boði."
 
 "Og þú vilt breyta því." andvarpaði ég.
 
@@ -32,7 +32,7 @@
 
 "Ég held ég skilji hvað þú ert að fara."
 
-"Meira hnitmiðað, ég sé þig skipta á milli sömu tveggja buxnanna á hverjum degi, eftir að þú fékkst peningagreiðslu uppá tvöþúsund dali fyrir fimm dögum síðan. Ef ég læt þig ekki kaupa föt núna þá held ég að þú sért aldrei að fara að kaupa þér föt."
+"Meira að efninu, ég sé þig skipta á milli sömu tveggja buxnanna á hverjum degi, eftir að þú fékkst peningagreiðslu uppá tvöþúsund dali fyrir fimm dögum síðan. Ef ég læt þig ekki kaupa föt núna þá held ég að þú sért aldrei að fara að kaupa þér föt."
 
 "Pabbi minn mun velta fyrir sér hvaðan ég fékk þetta," mótmælti ég þegar hún lagði par af blússum yfir annan handlegginn á mér.
 
@@ -54,7 +54,7 @@ Frá hinum enda fortjaldsins útskýrði hún, "Fyrst hélt ég að pabbi þinn 
 
 "Þú hefur nefnt þetta við þá," ég lét hendurnar falla frá hnöppunum á kjólnum og skellti enninu í krossviðsvegg búningsklefans.
 
-"Það kom upp þegar við vorum að tala um þig eftir að þú gekkst í hópinn og við hættum aldrei hundrað prósent að ræða það. Sorrímemmig. Þú ert ný, þú ert áhugaverð, við tölum um þig. Það er allt og sumt."
+"Það kom upp þegar við vorum að tala um þig eftir að þú gekkst í hópinn og við hættum aldrei alveg að ræða það. Fyrirgefðu, en við erum ekkert að taka þig sérstaklega fyrir eða neitt þannig. Þú ert ný, þú ert áhugaverð, við tölum um þig. Það er allt og sumt."
 
 Ég kláraði að hneppa hnöppunum og opnaði fortjaldið, "Datt þér á einhverjum tímapunkti í hug að ég vildi ekki að þú færir að hnýsast í mín persónulegu mál?"
 
@@ -76,11 +76,11 @@ Hún losaði efsta hnappinn. "Það sem þú vilt og það sem þú þarft eru t
 
 "Bara si svona," sagði ég, "því miður."
 
-Hún virtist skyndilega svolítið sár, "Þá það." Hún hengdi hausinn í smá stund, gaf síðan handabendingu í átt að fötunum mínum, "Hvað finnst þér?"
+Hún virtist skyndilega smá sár, "Þá það." Hún hengdi hausinn í smá stund, gaf síðan handabendingu í átt að fötunum mínum, "Hvað finnst þér?"
 
-Ég reyndi að laga til kragann. Mér líkaði óhlutstæð hönnunin á hægri hlið treyjunnar en kraginn var með v-hálsmáli sem náðu alveg niður þar sem rifbeinin mín enduðu og maginn byrjaði. "Toppurinn er fleginn allt of langt niður, gallabuxurnar eru of þröngar."
+Ég reyndi að laga til kragann. Mér líkaði óhlutstæð hönnunin á hægri hlið treyjunnar en kraginn var með vaff hálsmáli sem náðu alveg niður þar sem rifbeinin mín enduðu og maginn byrjaði. "Toppurinn er fleginn of langt niður, gallabuxurnar eru of þröngar."
 
-"Þú verður að venjast því að sýna smá skoru. Eins og ég sagði, vertu meira djörf í vali á útliti."
+"Þú verður að venjast því að sýna smá skoru. Eins og ég sagði, vertu meira djörf í vali á fatastíl."
 
 "Ég væri meira opin fyrir því að sýna skoru ef ég hefði eitthvað yfir höfuð til að sýna," benti ég á.
 
@@ -92,11 +92,11 @@ Hún virtist skyndilega svolítið sár, "Þá það." Hún hengdi hausinn í sm
 
 Ég yppti öxlum. Ég hafði sætt mig við að ég yrði eflaust grönn eins og kústskaft og með flata bringu alveg frá því að ég byrjaði á kynþroskaskeiðinu. Ég hafði bara þurft að skoða erfðafræði beggja vegna fjölskyldu minnar til að vita hvað ég átti í vændum.
 
-"Lof mér að lýsa samúð varðandi móður þína. Ég vissi ekki."
+"Leyfðu mér að lýsa samúð varðandi móður þína. Ég vissi ekki."
 
 "Takk, met samúðina mikils." andvarpaði ég, "Hart nei á toppinn."
 
-"Þá það, ég gef þér það, en við höldum buxunum. Þær sýna líkamsbygginguna þína."
+"Þá það, ég leyfi þér það, en við höldum buxunum. Þær sýna líkamsbygginguna þína."
 
 "Líkamsbyggingu þrettán ára stráks," sagði ég.
 
@@ -104,7 +104,7 @@ Hún virtist skyndilega svolítið sár, "Þá það." Hún hengdi hausinn í sm
 
 "Frábært," muldraði ég, "einhverstaðar þarna úti er annarlegur barnaperri með nafnið mitt á sér."
 
-Lisa hló, "Mátaðu eitthvað annað. En settu buxurnar með fötunum sem við ætlum að kaupa. Ég skal kaupa þær fyrir þig og ef þú ferð aldrei í þær verð ég að sætta mig við að þú finnir bara til sektarkenndar með það."
+Lisa hló, "Mátaðu eitthvað annað. En settu buxurnar á slána með fötunum sem við ætlum að kaupa. Ég skal kaupa þær fyrir þig og ef þú ferð aldrei í þær verð ég að sætta mig við að þú finnir einungis til sektarkenndar með það."
 
 "Finndu eins buxur í einu númeri stærra og ég skal klæðast þeim," stakk ég uppá. Áður en hún náði að mótmæla bætti ég við, "Þær munu skreppa saman í þvotti."
 
@@ -132,17 +132,17 @@ Hún leit á afgreiðslukonuna, "Á eftir."
 
 Hún glotti, "Takk. Ég efast um að ég fengi nokkurn tímann að gleyma þessu klúðri ef þau vissu um það."
 
-"Mundir þú veita þeim frið, ef hlutverkin væru öfug?"
+"Mundir þú veita þeim frið, ef þessu væri öfugt farið?"
 
 "Sénsinn," svaraði hún hlæjandi.
 
 "Mig grunaði það."
 
-"En varðandi samtal okkar áðan ... síðasta sinn sem ég mun nefna það í kvöld, ég lofa. Ef þú ákveður einhvern tímann að þú viljir aðstoð mína með eitthvað af persónulegu hlutunum sem þú ert að díla við, þá þarftu bara að biðja og ég er til."
+"En varðandi samtalið okkar áðan ... síðasta sinn sem ég mun nefna það í kvöld, ég lofa. Ef þú ákveður einhvern tímann að þú viljir aðstoð mína með eitthvað af persónulegu hlutunum sem þú ert að díla við, þá þarftu bara að biðja og ég er til."
 
-Ég gretti mig, var undirbúin undir að argast, en lét undan. Þetta var vinalegt boð sem ýtti ekki við neinu. "Allt í lagi. Ég þakka boðið, en ég hef það fínt."
+Ég gretti mig, var tilbúin að argast, en lét undan. Þetta var vinalegt boð sem þrýsti á engan hátt á mig. "Allt í lagi. Ég þakka boðið, en ég hef það fínt."
 
-"Þá er það frá. Förum að fá okkur að borða."
+"Þá er það frá. Förum og fáum okkur að borða."
 
 Fugly Bobs var skyndibitastaður af blygðunarlausari gerðinni, seldur á stað sem var að hluta veitingahús, að hluta bar, að hluta skáli við endimörk markaðarins með útsýni yfir ströndina. Allir íbúar svæðisins höfðu eflaust á einhverjum tímapunkti borðað þar. Allir sem höfðu vit í kollinum biðu svo í minnst ár til að gefa hjörtum sínum tækifæri til að jafna sig. Þetta var svona hamborgarastaður með svo sveittum hamborgurum að ef þú pantaðir mat til að taka heim var pappírspokinn orðinn gegnsær áður en heim var komið. Aðalborgarinn hét Fugly Bob Challenger: ef þú gast klárað hann þurftirðu ekki að borga fyrir hann. Það þarf líklega ekki að taka fram að flestir borguðu.
 
@@ -200,4 +200,4 @@ Augljóslega var fátt sem ég hefði getað sagt til að drepa stemninguna hra�
 
 ---
 
-[Fyrri hluti](Ormur-04.01-Skel.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.01-Skel.md) - [Næsti hluti](Ormur-04.03.md)
