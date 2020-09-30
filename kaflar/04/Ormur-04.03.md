@@ -192,4 +192,4 @@ Brian jánkaði og sagði, "Já, ég hugsa það."
 
 ---
 
-[Fyrri hluti](Ormur-04.02.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.02.md) - [Næsti hluti](Ormur-04.04.md)
