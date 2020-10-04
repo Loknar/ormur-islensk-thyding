@@ -196,8 +196,8 @@ Brian var alvarlegur á svip, "Nei. Síminn hennar er dauður eða utan þjónus
 
 Góða andrúmsloftið sem hafði verið stundarkorni áður var horfið. Við skiptumst á að líta á hvort annað og enginn brosti.
 
-"Ég held ..." sagði Brian og vó orð sín vandlega, "það sé mjög góð hugmynd að athuga með peningana, eins fljótt og við getum."
+"Ég held ..." sagði Brian og vó orð sín vandlega, "það væri mjög góð hugmynd að athuga með peningana, eins fljótt og auðið er."
 
 ---
 
-[Fyrri hluti](Ormur-04.03.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.03.md) - [Næsti hluti](Ormur-04.05.md)
