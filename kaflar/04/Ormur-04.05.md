@@ -4,7 +4,7 @@
 
 ### Skel 4.5
 
-Sólarlög eru alltaf fallegust eftir skara af vondu veðri. Dagurinn í dag var engin undantekning. Eftir einn hog hálfan dag af þungri rigningu sem við höfðum upplifað, þá var himininn orðinn litaður af appelsínugulum og rauðleitum lit, með vott af jólubláum í þunnum skýjunum sem hreyfðust hratt í sterkum hávindunum. Sólarlagið leit sérstaklega fallega út þegar við nálguðumst sjóinn í flóanum, en ekkert okkar var í raun í skapi til að kunna að meta það.
+Sólarlög eru alltaf fallegust eftir skara af vondu veðri. Dagurinn í dag var engin undantekning. Eftir einn og hálfan dag af mígandi rigningu sem við höfðum fengið, þá var himininn orðinn málaður af appelsínugulum og rauðleitum lit, með vott af fjólubláum í þunnum skýjunum sem hreyfðust hratt í sterkum hávindunum. Sólarlagið leit sérstaklega fallega út þegar við nálguðumst sjóinn við flóann, en ekkert okkar var í raun í skapi til að kunna að meta það.
 
 Það var eins og við værum gjörbreytt fólk frá vinahópnum sem hafði rölt saman í góðu skapi frá markaðnum yfir í risið. Það voru engin samskipti, ekkert grín eða glens, engin myndun vinatenglsa. Við vorum öll hugsandi það sama: eitthvað var að, eitthvað hafði komið fyrir. Enginn sagði þó upphátt sem kom upp í kollinn, eins og það væri við lýði óorðað samkomulag um að auka ekki á áhyggjurnar með að orða þær hugdettur sem spunnu upp í kollinn.
 
@@ -72,7 +72,7 @@ Bæði Tattletale og Regent glottu og hlógu. Grue var hljóðlátur. Hann stó�
 
 "Hvað er þemað ykkar í kvöld?" kallað Regent, "Búningarnir ykkar eru svo skelfilegir að ég get ekki horft á þá nógu lengi til að átta mig á því."
 
-Leet og Über gáfu honum illt auga. Aðaleinkennandi þátturinn þeirra var tölvuleikjaþemu. Með hverju verkefni völdu þeir einhvern tölvuleik eða leikjaseríu sem þema og hönnuðu búningana sína og glæpinn í kringum þemað. Einn daginn hafði Leet verið í Mario búning skjótandi eldboltum á meðan Über var dressaður upp sem Bowser, þeir brutust inn í myntsöfnunarverslun til að safna 'myntum'. Síðan viku seinna voru þeir með GTA þema, keyrandi um borgina á upptjúnuðum kagga, að abbast upp á ABB gengið og berjandi hórur.
+Leet og Über gáfu honum illt auga. Aðaleinkennandi þátturinn þeirra var tölvuleikjaþemu. Með hverju verkefni völdu þeir einhvern tölvuleik eða leikjaseríu sem þema og hönnuðu búningana sína og glæpinn í kringum þemað. Einn daginn hafði Leet verið í Mario búning skjótandi eldboltum á meðan Über var dressaður upp sem Bowser, þeir brutust inn í myntsöfnunarverslun til að safna 'myntum'. Síðan viku seinna voru þeir með GTA þema, keyrandi um borgina á upptjúnuðum og skrautlegum kagga, að abbast upp á ABB gengið og berjandi hórur.
 
 Eins og ég sagði. Fyrirlitslegir.
 
@@ -102,4 +102,4 @@ Grue talaði lágum rómi sem gat ekki borist til illmennaparsins, "Þeir gerðu
 
 ---
 
-[Fyrri hluti](Ormur-04.04.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.04.md) - [Næsti hluti](Ormur-04.06.md)
