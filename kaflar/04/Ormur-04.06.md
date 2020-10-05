@@ -114,11 +114,11 @@ Leet hóf að gefa frá sér þvinguð köfnunarhljóð. Hann náði að koma m�
 
 Ég sleppti takinu þegar hann loks lyppaðist niður, ýtti honum af mér, lagaði grímuna mína dró upp hnífinn minn og skar hátæknibakpokann af honum. Þegar ég var búin að þvi leitaði ég að öðrum tólum sem hann kynni að hafa á sér. Ef við ætluðum að yfirheyra hann þá gengi ekki að hann gæti dregið fram eitthvað smádót til að losa sig eða sem gæti tekið okkur úr umferð. Búningurinn hans var húðþéttur, svo það var auðvelt að ganga úr skugga um að hann væri ekki með falda vasa eða einhverjar græjur á sér. Til öryggis skar ég loftnetið af höfuðfatinu hans og fjarlægði beltið hans.
 
-Hin þrjú komu með slasaðan og meðvitundarlausan Über á milli sín, handleggirnir höfðu verið bundnir fyrir aftan bak með plastböndum á úlnliðunum. Þau hentu honum á jörðina við hlið Leet.
+Hin þrjú komu með slasaðan og meðvitundarlausan Über á milli sín, handleggirnir höfðu verið bundnir fyrir aftan bak með plastböndum utanum úlnliðina. Þau hentu honum á jörðina við hlið Leet.
 
 "Þá er næst á dagsskrá að komast að því hvað þeir gerðu við Bitch og peningana," sagði Tattletale. Hún leit á mig, "Ertu með imlsölt á þér?"
 
-Ég hristi höfuðið, "Nei. Þessir gaurar eru með undirmenn vinnandi fyrir sig, ekki rétt? Líklega hafa þeir gefið þeim skipanir um að standa vörð um peningana. Líklega finnum við Bitch á sama stað."
+Ég hristi höfuðið, "Nei. Þessir gaurar eru með undirmenn starfandi fyrir sig, ekki rétt? Líklega hafa þeir gefið þeim skipanir um að standa vörð um peningana. Líklega finnum við Bitch á sama stað."
 
 "Nálægt því en ekki alveg," svaraði vélrænt hvísl.
 
@@ -148,4 +148,4 @@ Hún bjóst ekki við svari og beið ekki eftir því. Hún benti á okkur og hr
 
 ---
 
-[Fyrri hluti](Ormur-04.05.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.05.md) - [Næsti hluti](Ormur-04.06.x.[Sjónarhorn;Kayden].md)
