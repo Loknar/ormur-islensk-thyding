@@ -6,29 +6,29 @@
 
 Kayden beygði sig niður við vögguna, með handleggina krossaða yfir brúnina og horfði á bringu barnsins rísa og síga. Hún fann frið í brjósti sér. Aster var fullkomin, gallalaus, ómenguð af ringulreiðinni og illsku heimsins handan íbúðarinnar og barnaherbergisins. Jafnvel þegar hún var vakandi var hún ekki ýkja krefjandi, fljót að draga úr væli sínu niður í hljóðlátar kvartanir þegar hún heyrði fullvissu um að matur, félagsskapur eða bleyjuskipti voru á leiðinni. Ekki að hún skildi hvað var um að vera auðvitað, en hún treysti móður sinni til að veita henni það sem hana vantaði. Kayden hefði ekki getað beðið um meira. Það var bókstaflega ekkert sem Aster gat gert, haft eða verið sem myndi gera hana betri en hún var.
 
-Á undarlegan hátt, hugsaði Kayden, fann hún huggun og ró í Aster. Hún fann styrk í félagsskap barns síns, í hringiðu heims sem hún hafði litla von í.
+Á undarlegan hátt, hugsaði Kayden, fann hún huggun og ró í Aster. Hún fann styrk í félagsskap barns síns, í hringiðu heims sem hún hafði litla trú á.
 
-Það krafðist viljastyrks að neyða sig til að stíga í burtu, til að hljóðlátt ganga út úr barnaherberginu og halla hurðinni á eftir sér. Þegar hún sá bústinn fimmtán ára gamla Theo, sitjandi fyrir framan sjónvarpið, var hún tímabundið afvegaleidd. Síðan fann hún til sektarkenndar. Hún hafði steingleymt drengnum, á meðan hún hafði hugað að Aster og undirbúið hana fyrir komandi nótt.
+Það krafðist viljastyrks að neyða sig til að stíga í burtu, til að hljóðlátt ganga út úr barnaherberginu og halla hurðinni á eftir sér. Þegar hún sá bústinn fimmtán ára gamla Theo, sitjandi fyrir framan sjónvarpið, var hún tímabundið afvegaleidd. Síðan fann hún til sektarkenndar. Hún hafði steingleymt drengnum, á meðan hún hafði hugað að Aster og undirbúið hana fyrir komandi nóttina.
 
 "Theo, fyrirgefðu," sagði hún. Drengurinn hafði verið heillaður af lokaatkvæðum í einhverjum raunvöruleikasjónvarpsþætti, en hann hikaði ekki við að slökkva á hljóðinu og veita Kayden fulla athygli sína. "Ég var svo upptekin, ég er ekki búin að laga neinn mat handa þér."
 
 "Það er í lagi," svaraði Theo henni og braut augnsamband. Það var ekki í lagi.
 
-"Sko, ég ætla út-"
+"Sjáðu til, ég ætla að skreppa út-"
 
 "Í búning?"
 
-"Já," svaraði Kayden. Hún reyndi að lesa í svipinn á andliti drengsins en Theo var eins og steinveggur. Hann hafði þurft að temja sér það, virkilega, með uppeldið sem hann hafði fengið.
+"Já," svaraði Kayden. Hún reyndi að lesa í svipinn á andliti drengsins en Theo var eins og steinveggur. Hann hafði þurft að temja sér það, gjörsamlega, með uppeldið sem hann hafði fengið.
 
-Kayden hélt aftur af sér að koma með athugasemdir eða fá drenginn til að koma með athugasemdir, gagnrýni eða stuðning, Kayden hélt áfram, "Ég skil eftir þrjátíu dali hér á eldhúsborðinu. Ef þú vilt nota þá til að panta heimsendan mat, ekki hika við það. Annars máttu athuga hvort þú finnir eitthvað sem þér líst á í skápunum mínum, ísskápnum, eða nota peninginn til að kaupa eitthvað í sjoppunni í anddyrinu, allt í lagi? Ef þú ákveður að leigja bíómynd, skildu hana þá eftir hér svo ég geti skilað henni. Mig gæti langað að horfa á hana líka." Kayden brosti og reyndi að lokka fram samskonar svip frá honum.
+Kayden hélt aftur af sér að koma með athugasemdir eða fá drenginn til að koma með athugasemdir, gagnrýni eða stuðning, Kayden hélt áfram, "Ég skil eftir þrjátíu dali hér á eldhúsborðinu. Ef þú vilt nota þá til að panta heimsendan mat, ekki hika við það. Annars máttu athuga hvort þú finnir eitthvað sem þér líst á í eldhússkápunum, ísskápnum, eða nota peninginn til að kaupa eitthvað í sjoppunni niðri í anddyrinu, allt í lagi? Ef þú ákveður að leigja bíómynd, skildu hana þá eftir hér svo ég geti skilað henni. Mér gæti dottið í hug að horfa á hana líka." Kayden brosti og reyndi að lokka fram samskonar svip frá honum.
 
 "Allt í lagi," sagði Theo, sviplaus. "Hvenær kemurðu aftur?"
 
-*Nógu tímanlega til að taka þig aftur til föður þíns,* sagði Kayden næstum. Svo fékk hún hugmynd, "Ég gæti orðið seint á ferðinni. Væri í lagi ef þú gistir hérna í nótt? Þú þyrftir bara að hafa auga með Aster á nokkurra klukkustunda fresti. Hafa eyra með henni ef hún skyldi vakna? Ég myndi borga þér fyrir barnapössun alla nóttina."
+*Nógu tímanlega til að taka þig aftur til föður þíns,* sagði Kayden næstum. Svo fékk hún hugmynd, "Ég gæti orðið seint á ferðinni. Væri í lagi ef þú gistir hérna í nótt? Þú þyrftir bara að hafa auga með Aster á nokkurra klukkustunda fresti. Hlusta eftir henni ef hún skyldi vakna? Ég myndi borga þér fyrir barnapössun alla nóttina."
 
 Skiptin þar sem Theo sýndi tilfinningar voru fá. Bros, ósvikið, færðist yfir andlit Theo og braut næstum hjarta Kayden.
 
-"Ég væri meira en til," svaraði Theo og meinti það.
+"Það væri æði," svaraði Theo og meinti það.
 
 "Þá er það ákveðið. Fyrirgefðu að ég skyldi trufla þig frá þættinum," sagði hún.
 
@@ -38,7 +38,7 @@ Hún varð að hugga sig við það að hún var í það minnsta að veita str�
 
 Þegar hún var búin athugaði hún vandlega hvort hún væri að trufla Theo frá einhverju spennandi í sjónvarpinu áður en hún sagði við hann, "Ég er þá farin, óskaðu mér góðs gengis."
 
-"Gangi þér vel," svaraði drengurinn með tón sem reyndi að hljóma sannfærandi en var augljóslega tilfinningasnauður. Fölsk örðin stungu Kayden meira en ef Theo hefði ekki sagt neitt. Kvöldið núna var þó ekki rétti tíminn til að takast á við það mál. Hún yfirgaf íbúðina og læsti útidyrunum á eftir sér. Hún lagði af stað upp stigann, upp á þak, og lét baðsloppinn sinn falla af sér. Flíkin féll milli tveggja blómapotta, þar sem enginn mundi finna hana nema að viðkomandi væri sérstaklega að leita að henni.
+"Gangi þér vel," svaraði drengurinn með tón sem reyndi að hljóma sannfærandi en var augljóslega tilfinningasnauður. Fölsk orðin stungu Kayden meira en ef Theo hefði ekki sagt neitt. Kvöldið núna var þó ekki rétti tíminn til að takast á við það mál. Hún yfirgaf íbúðina og læsti útidyrunum á eftir sér. Hún lagði af stað upp stigann, upp á þak, og lét baðsloppinn sinn falla af sér. Flíkin féll milli tveggja blómapotta, þar sem enginn mundi finna hana nema að viðkomandi væri sérstaklega að leita að henni.
 
 Síðan steig hún fram af þaksyllunni á blokkinni.
 
@@ -46,9 +46,9 @@ Vindurinn reif í hárið á henni, blés köldu í andlit hennar. Á meðan hú
 
 *Aster*. Það var viðeigandi að hún hugsaði til dóttur sinnar. Hún gerði það alltaf þessa dagana, í hvert sinn sem hún stökk. Þetta var orðin helgiathöfn, eins og hún gæti ekki fundið viljastyrkinn til að hreinsa til í borginni ef hún minnti sig ekki á *hvers vegna* hún yfir höfuð var að því.
 
-Orka dreifðist út líkama hennar. Allur himininn lýstist upp í ljómandi, blindandi leiftrandi ljós. Þegar ofbirtan dvínaði í augum fólks á götu niðri var hún þegar farin, fljúgandi yfir miðbæ Brockton Bay, hvít ljósrák fylgdi á eftir henni.
+Orka dreifðist út líkama hennar. Allur himininn lýstist upp í ljómandi, blindandi leiftrandi ljós. Þegar ofbirtan dvínaði í augum fólks á götu niðri var hún þegar horfin á braut, fljúgandi yfir miðbæ Brockton Bay, hvít ljósrák fylgdi á eftir henni.
 
-Kayden klæddist ekki grímu, hún þurfti þess ekki. Þegar krafturinn hennar var virkur varð brúnt hár hennar og augu geislandi hvítt, skínandi svo skæru ljósi frá sér að það var ómögulegt að horfa beint á hana. Það sama gilti um alabasthjúpaða búninginn hennar, hann geislaði af mjúkum en öflugum ljóma sem gáraðist eins og ljós á yfirborði vatns.
+Kayden klæddist ekki grímu, hún þurfti þess ekki. Þegar krafturinn hennar var virkur urðu brúnt hár hennar og augu geislandi hvít, skínandi svo skæru ljósi frá sér að það var ómögulegt að horfa beint á hana. Það sama gilti um alabasthjúpaða búninginn hennar, hann geislaði af mjúkum en öflugum ljóma sem gáraðist eins og ljós á yfirborði vatns.
 
 Venjulega vaktaði hún svæðið í klukkutíma eða tvo, fékk tilfinningu fyrir hlutunum, greip svo til aðgerða þar sem hún taldi það heppilegast. En í kvöld var hún örg, og hún var ekki einu sinni byrjuð.
 
@@ -62,7 +62,13 @@ Fimm af sjö frídögum hennar voru búnir og henni hafði ekki tekist að áork
 
 Hún ákvað að fara ekki venjubundnu eftirlitsleiðina sína og hélt beint í norðurhluta borgarinnar og skimaði yfir bryggjuhverfið. Það voru engir ABB meðlimir sjáanlegir, fyrir utan tvær kóreskar stúlkur sem voru í pásu frá störfum og spjallandi við aldraðan feitan hórmangara þeirra. Kayden barðist við hvötina að grípa til aðgerða gegn þeim, hélt aftur af sér að þvinga úr þeim upplýsingar. Hún hafði gert það kvöldið áður við hóp sölumanna og uppskar lítið sem ekkert fyrir ómakið.
 
-ABB gengið var enn virkt. Jafnvel með leiðtoga þeirra í fangaklefa virtist gengið skipulagðara en það hafði nokkru sinni verið undir handleiðslu Lung. En yfirheyrslur hennar höfðu ekki skilað neinum upplýsingum um hvers vegna. Jafnvel brotnir handleggir og fætur höfðu ekki skilað nógu miklum sársauka eða ótta til að fá þrjótana til að leysa frá skjóðunni um hvað væri að gerast.
+ABB gengið var enn virkt. Jafnvel með leiðtoga þeirra bakvið lás og slá virtist gengið skipulagðara en það hafði nokkru sinni verið undir handleiðslu Lung. En yfirheyrslur hennar höfðu ekki skilað neinum vísbendingum um hvers vegna. Jafnvel brotnir handleggir og fætur höfðu ekki skilað nógu miklum sársauka eða ótta til að fá þrjótana til að leysa frá skjóðunni um hvað væri að gerast.
+
+Það var venjulega þegar svona bjátaði á að Kayden leitaði til vitneskjufólks eftir upplýsingum, dustaði rykið af gömlum bandalögum og leitaði liðsinnis við að knésetja ABB áður en gengið næði að fóta sig aftur. Hún hafði leitað til gamalla félaga, tengiliða og fyrrum samverkamanna fyrir þremur dögum síðan, það angraði hana hve fá svör bárust henni, hve lítill áhugi var til staðar. Max, faðir Theo, var þar helst um að kenna. Rétt eins og hún hafði sagt sig úr liði hans meira brotin en þegar hún hafði gengið í það þá höfðu aðrir gengið í gegnum sömu reynslu. Með persónutöfrum og mikilli tilfinningu fyrir fólki hafði Max tekist að fá fólk víðsvegar frá um heiminn til að ganga til liðs við hann. Alveg eins auðveldlega reif hann liðsfólk sitt í sundur án þess að það tæki eftir að hann væri að því. Sjálfstraust brotið, nagandi efasemdir, ofsóknaræði gagnvart öllum nema þeim sem hafði plantað þessum fræjum í huga þeirra, eitt af öðru splundruðust þau úr liðinu. Ekki það að Max hafði af því áhyggjur. Það var alltaf nýtt og ferskt framboð af björtum augum nýliða til að taka sæti þeirra sem hurfu á braut.
+
+Nú var megnið af klíkunni horfin, hugsanlega á leið í einhvert stórt verkefni, og hún hafði enga hugmynd um hverskonar verkefni né hvar. Hún hafði ekki hugmynd um hvar hún gæti komist að því. Kayden gnísti tönnunum sínum. Þetta var ekki að virka. Ef hún ætlaði að ná fram einhverjum árangri áður en hún mundi klára orlofsdagana sína þá varð hún að gera eitthvað núna. Semja við djöfulinn.
+
+Hún hélt aftur í miðbæinn. Það var erfitt að rata um göturnar svona hátt uppi, jafnvel þó hún ferðaðist um þessar götur daglega í hversdagslegum klæðum. Frá þessu sjónarhorni litu allar byggingarnar eins út, með spegluðum ytri hliðum og malarþökum. Tvisvar hringsólaði hún um efstu hæðir rangra blokka, leitandi að merkingunni á hlið háhýsisins sem aðgreindi háhýsið hans Max frá öllum hinum.
 
 
 
