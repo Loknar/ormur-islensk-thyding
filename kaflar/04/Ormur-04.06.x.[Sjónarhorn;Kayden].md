@@ -186,4 +186,4 @@ Hann rétti fram annan málmhanskann, fyrir hana að taka í. Handabandið var �
 
 ---
 
-[Fyrri hluti](Ormur-04.05.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.05.md) - [Næsti hluti](Ormur-04.07.md)
