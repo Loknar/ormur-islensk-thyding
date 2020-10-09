@@ -68,7 +68,99 @@ ABB gengið var enn virkt. Jafnvel með leiðtoga þeirra bakvið lás og slá v
 
 Nú var megnið af klíkunni horfin, hugsanlega á leið í einhvert stórt verkefni, og hún hafði enga hugmynd um hverskonar verkefni né hvar. Hún hafði ekki hugmynd um hvar hún gæti komist að því. Kayden gnísti tönnunum sínum. Þetta var ekki að virka. Ef hún ætlaði að ná fram einhverjum árangri áður en hún mundi klára orlofsdagana sína þá varð hún að gera eitthvað núna. Semja við djöfulinn.
 
-Hún hélt aftur í miðbæinn. Það var erfitt að rata um göturnar svona hátt uppi, jafnvel þó hún ferðaðist um þessar götur daglega í hversdagslegum klæðum. Frá þessu sjónarhorni litu allar byggingarnar eins út, með spegluðum ytri hliðum og malarþökum. Tvisvar hringsólaði hún um efstu hæðir rangra blokka, leitandi að merkingunni á hlið háhýsisins sem aðgreindi háhýsið hans Max frá öllum hinum.
+Hún hélt aftur í miðbæinn. Það var erfitt að rata um göturnar svona hátt uppi, jafnvel þó hún ferðaðist um þessar götur daglega sem hversdagslega hún. Frá þessu háloftasjónarhorni litu allar byggingarnar eins út, með spegluðum ytri hliðum og malarþökum. Tvisvar hringsólaði hún um efstu hæðir vitlauss háhýsis, leitandi að hliðarmerkingunni sem aðgreindi háhýsið hans Max frá öllum hinum.
+
+Svarta kórónan á rauðum og gulum bakgrunni. Hún staðnæmdist þegar hún sá það, bölvandi hljóðlátlega. Þegar hún nálgaðist sá hún hann, ennþá staddan á skrifstofunni hans. Ekki svo óvenjulegt, hann hafði unnið frameftir öll kvöld þann tíma sem þau voru gift. Hann var með fartölvu fyrir framan sig, samloku í pappírsumbúðum í hægri hönd og pappírsstafla á vinstri hluta skrifborðsins. Hann sneri sér í skrifborðsstólnum sínum til að bera hana augum út um gluggann þegar hún nálgaðist og brosti blítt til hennar.
+
+Til andskotans með hann, hann var fimm árum eldri en hún, hann yrði þrjátíuogfimm ára á þessu ári og hann var enn best útlítandi maður sem hún hafði á ævinni séð. Jafnvel hrukkurnar útfrá augunum hans gerðu hann meira aðlaðandi. Hann hafði tekið af sér bindið og jakkann, og ermarnar á skyrtunni hans voru vöðlaðar upp handleggina hans, hún sá að hann stundaði greinilega enn líkamsrækt af hörku.
+
+Hann beið, með hendurnar samhangandi yfir magann, svipbrigðin hans gáfu til kynna að honum væri skemmt. Hún vissi að hann gat opnað gluggann á skrifstofunni upp á gátt. Hann var að bíða eftir að hún bæði hann um að hleypa sér inn. Það voru svona valdaleikir sem hann hafði yndi af að spila.
+
+Venjulega hefði hún reynt viljastyrk sinn gegn honum. Iðulega án árangurs, en hún hefði reynt. Líklega hefði það endað með að hún hefði flogið aftur í burtu og gert honum ljóst að hún væri fullfær að komast af án hans aðstoðar. En þetta kvöld fann hún gremjuna af árangurslausum 'frídögum' sínum malla innra með sér og fékk sig til að nálgast og banka á gluggann.
+
+Áður en hún náði að banka í annað sinn heyrðist smellur og glugginn opnaðist upp á við. Hún sveif inn og staðnæmdist. Hann virtist ekki hafa hreyft fingur þegar hann opnaði gluggann. Hann var mikið fyrir svoleiðis sýndarmennsku. Hún lét fætur sína lenda á teppi skrifstofunnar og lét birtuna frá sér dala. Hárið hennar hætti að sveiflast til sökum orkunnar sem bærðist í gegnum það, það féll niður með síðum og varð aftur brúnt. Augun hennar dökknuðu og öðluðust sinn venjulega brúngræna lit. Hún heyrði smell og síðan suð á meðan glugginn lokaðist fyrir aftan hana.
+
+"Kayden, langt síðan síðast," sagði hann til að heilsa henni og tókst að láta það hljóma eins og gagnrýni. Hann sneri sér aftur að tölvunni og sló eitthvað inn í hana, ljósin á skrifstofunni hófu að lýsa með skærum halógen glampa. Hún lokaði augunum stuttlega og baðaði sig í ljómanum og fann orkuforðann innra með sér endurhlaðast.
+
+"Max. Takk fyrir birtuna."
+
+"Þú ert hress, geri ég ráð fyrir?"
+
+"Ég er góð."
+
+"Og dóttir okkar?"
+
+"Aster er við góða heilsu," sagði hún, eins yfirvegað og hún gat, samhliða því að hún fann hjartsláttinn í eyrum sínum. Hún vissi að honum var í raun sama. Hann var að láta hana vita að hann hafði ekki gleymt Aster, látandi hana vita að hann gæti, ef hann vildi, tekið forræði yfir stúlkubarninu hennar. Hann hafði fjármagnið, réttu tengiliðina. Það yrði lítið sem ekkert sem hún gæti gert. Hún mundi eftir að nefna, "Theo er að passa hana í kvöld."
+
+"Ég veit. Hann hringdi áðan og spurði hvort það væri í lagi að hann yrði hjá ykkur í nótt. Ég sagði honum að það væri í góðu lagi. Það gerir honum gott að vera innan um þig og Aster. Smá kvenmanns áhrif í líf hans."
+
+Kayden svaraði með því að kinka kolli einu sinni. Fyrir utanaðkomandi aðila hljómaði þetta samtal þeirra ef til vill mjög sakleysislega. En fyrir hana, sem hafði starfað við hlið Max í tíu ár og verið gift honum í eitt ár, hún vissi fullvel að þetta var allt samningsviðræður. Hann var að gera henni fyllilega grein fyrir að hann væri að gera henni greiða, og hann myndi búast við greiða í skiptum einhverntímann í framtíðinni, í kvöld eða eftir viku. Þannig virkaði hann - stöðugt í valdatafli, vinnandi sér inn forskot, yfirburði. Alltaf passaði hann að gera það þannig að erfitt var að bjóða honum birginn. Ef hún benti á valdaleiki hans þá þóttist hann saklaus og lét hana líta út fyrir að vera með óþarfa æsing, sjáandi illindi þar sem engin væru. Stundum trúði hún því jafnvel sjálf.
+
+"Svo hvað get ég gert fyrir þig?" hann hallaði sér aftur í sætinu.
+
+"ABB gengið skortir forystu. Eða að minnsta kosti, skortir reynda forystu. Ég vil taka þau niður áður en þeim tekst að fóta sig aftur. Til að geta það vil ég sameina gamla teymið okkar."
+
+"Og þú ert að viðurkenna að þú getir það ekki án minnar hjálpar."
+
+"Já," það var erfitt fyrir hana að viðurkenna það.
+
+"Hef ekki áhuga," sagði hann og sneri sér í stólnum aftur að tölvuskjánum. Það heyrðist smellur og glugginn fyrir aftan hana opnaðist aftur. Það kom vindhviða inn um gluggann og blés hárinu fyrir andlit hennar. Hún strauk því aftur fyrir eyrað.
+
+"Ég hafði samband við þau hin, en ekkert þeirra sem hefur unnið fyrir þig eru tilbúin að taka af skarið að ganga til liðs við mig. Sum þeirra segjast hrædd um að móðga þig. Önnur eru bara hrædd, eða hafa þegar gefist upp. Spurja mig hvers vegna við sem hópur gætum gert eitthvað betur en þau hafa áorkað undir þinni stjórn? Ég er ekki að ná neinum árangri ein, og tíminn er að renna út. Það eina sem ég þyrfti væri eitt orð frá þér, og ég væri strax komin með fjögurra eða fimm manna teymi. Með það gæti ég léttilega yfirbugað og tekið í sundur ABB gengið."
+
+Max stóð upp og settist á skrifborðið svo hann sneri í átt að Kayden, "Ég sé ekki hvernig það yrði vinnunar virði. Hvað mundi ég græða á því?"
+
+"ABB gengið yrði liðin tíð, svona til að byrja með."
+
+"Þeirra tími mun koma að endingu. Ég er þolinmóður maður. Hvað annað?"
+
+"Ég hef ekkert annað að bjóða þér, Max," svaraði hún. Það var lygi og hún vissi það ... en það sem hún hafði myndi hún aldrei gefa frá sér, aldrei nokkurn tímann. Hún gæfi Aster aldrei frá sér.
+
+"Ég vil *þig*. Í lið með mér aftur."
+
+"Nei."
+
+"Þú yrðir næstæðsti stjórnandi á eftir mér. Ég mundi ræða við gömlu liðsfélaga þína og fá þá til að stofna með þér sérstakan hóp sem ynni beint undir þér. Þú mundir bera undir mig allar aðgerðir sem ykkur dytti í hug að framkvæma, en að öllu öðru leiti, þá værirðu algjörlega sjálfstæð. Frjálst að nota lið þitt eins og þér sýnist."
+
+*Að öllu öðru leiti*, hugsaði hún. Eins og það hefði enga þýðingu að hún þyrfti að bera allt sem henni dytti í hug að gera undir hann. "Ég er ekki sammála hvernig þú kýst að gera hlutina. Ég vil ekki eiga tengsl við þig."
+
+Hann hló, kokhraust, djúpt, innilega, á meðan stóð hún þarna í grýttri þögn.
+
+"Kayden," sagði hann þegar hann hætti, "Þú ert nú þegar með tengsl við mig. Fólk segir nöfnin okkar í sömu andrá, jafnvel þegar við höfum ekki unnið saman í tæp tvö ár. Þegar nafnið mitt birtist í fréttamiðlum er þitt aldrei langt undan."
+
+"Ég er að vinna í að breyta því."
+
+"Og þú munt þurfa að vinna við það áfram næstu áratugina, árangurslaust, ég ábyrgist það."
+
+Kayden sneri sér við og horfði út um gluggann, henni fannst hún ekki geta horft í ljómandi blá augun hans Max lengur.
+
+Hann hélt áfram, og hún vissi að hann brosti hæðnislega þó hún sæi ekki framan í hann, "Burtséð frá mismunandi aðferðum okkar, þá deilum við sömu markmiðunum. Að hreinsa til í þessum skítuga heimi okkar."
+
+"Þú telur þig vera að hreinsa til með því að koma eiturlyfjum í umferð á götum borgarinnar, með því að stela, með því að kúga. Ég get ekki horft framhjá því. Ég gat það aldrei. Það er ekkert vit í því, þú bætir ekki hlutina með því að gera þá verri."
+
+Max brosti, "Á yfirborðinu lítur það kannski illa út, en það þýðir meiri peningar, meiri völd, og það gefur mér vogarafl til að hafa áhrif á hlutina. Eina fólkið sem ég veld skaða er fólkið sem olli vandræðunum til að byrja með."
+
+Þetta var svar sem hún hafði heyrt hann þylja nógu oft áður. Hún brá saman höndunum.
+
+Hann reyndi aftur, "Leyfðu mér að spyrja þig - mundir þú frekar vilja gera hlutina á þinn hátt, mistakast að ná fram breytingum, eða viltu starfa undir mér og hafa áhrif?"
+
+"Ég *hef* áhrif," svaraði Kayden, "Ég er að vinna í að gera þennan heim betri."
+
+"Já auðvitað," svaraði hann, og lítillætingin í tón hans fór ekki framhjá henni, "Þú yfirgafst raðir mínar til að gera gott, það er bara hrein tilviljun að það eru einungis svartir, brúnir eða gulir þrjótar sem þú ræðst á."
+
+Kayden setti upp skeifu, "Erfitt að forðast, þegar eina sýnilega klíka hvítra skúrka er klíkan þín. Sumir gamlir vinir þínir og bandamenn mínir vinna enn fyrir þig ... ég get ekki farið að ráðast gegn þeim er það? Ég er að vinna í að bæta þessa borg, en ég ætla ekki að berja niður fólk sem ég hef starfað eða skálað með."
+
+"Og þar með ertu að gera lítið til að sýna fram á að þú starfir ekki lengur innan raða Empire Eigty-Eight," sagði Max brosandi, "það er skondið að heyra þig reyna að réttlæta sjónarmið þitt, en þú ert að hunsa fílinn í herberginum. Hættu þessu kjaftæði og segðu mér að þú finnir ekki eitthvað öðruvísi þegar þú horfir framan í svart andlit, samanborið við þegar þú horfir framan í hvítt."
+
+Kayden vildi ekki svara því. Það var í raun honum að kenna. Hnefaleikakappinn sem hún hafði verið skotin í á framhaldsskólaárunum hafði verið sá fyrsti til að setja sig í samband við hana þegar hún fór að láta á sér kræla í búning svífandi yfir borginni. Blinduð af fegurð hans og persónutöfrum hafði hún látist til leiðast, tekið upp hans sjónarmið. Hún hafði reynt að temja sér aðra sýn eftir að þau skildu, en hún hafði séð margt á þessum tíu árum sem hún starfaði með honum. Það var ómögulegt að líta á borgina núna og hunsa þá staðreynd að of mikið af því sem gerði hana að vondum stað til að búa og ala upp barn í mátti rekja til ákveðins hóps fólks. Jú, það voru glæpamenn innan raða hvítra, en þeir voru í það minnsta siðmenntaðir í störfum sínum.
+
+Þegar engin svör bárust hélt Max áfram, "Það er það sem ég hélt. Sama hve mismunandi aðferðir okkar eru, óháð því hvort þú ert tilbúin að viðurkenna það upphátt, þá held ég að við deilum mjög svipuðu sjónarhorni. Hér er tilboð mitt: Leyfðu mér að sanna að aðferðir mínar virka. Gakktu til liðs við mig, þjónaðu sem næstæðsti leiðtogi á eftir mér í eitt ár í viðbót. Eina manneskjan sem þú svarar undir er ég og ég gef þér þitt eigið teymi að vinna með. Þú mátt handvelja þá sem þú vilt í þetta lið þitt af núverandi og komandi meðlimum okkar og fyrrverandi meðlimum, þó ég geti ekki ábyrgst að hver og einn þeirra sem þú nefnir komi hlaupandi ..."
+
+"Max ..." Kayden hristi höfuðið.
+
+Lokahluti samningsins er þessi. Ef þú ert ekki sátt við hvernig ég geri hlutina þegar árið er liðið, þá er Empire Eighty-Eight þitt. Með manni og mús, öll viðskipti, starfsfólk, eignir, lögmætar jafnt sem aðrar. Ég færi mig undir þína stjórn og mun fylgja þínum skipunum. Þú getur gert Empire Eighty-Eight að mannúðarsamtökum, selt fyrirtækið, gert okkur að ofurhetjusamtökum. Mér er sama. Ef ég get ekki heillað þig, þá er það sem ég er að gera hérna einfaldlega ekki þess virði að halda í.
+
+Þetta vakti athygli hennar. Fyrir mörgum árum hefði Kayden líklega tekið svona tilboði án umhugsunar. Eftir að hafa verið gift Max í ellefu mánuði, eftir að hafa komist að því hvaða mann hann hafði að fela, það gaf henni innsýn sem kenndi henni að hafa varann á. Hún íhugaði tilboðið í dágóðan tíma, til að reyna að átta sig á hængnum ef einhver væri. Hann var að segja henni satt vissi hún. Hvað annað sem Max var þá var hann ekki lygari, hann kæmi með blákaldar lygar til að fá sínu fram.
 
 
 
