@@ -160,9 +160,29 @@ Kayden vildi ekki svara því. Það var í raun honum að kenna. Hnefaleikakapp
 
 Lokahluti samningsins er þessi. Ef þú ert ekki sátt við hvernig ég geri hlutina þegar árið er liðið, þá er Empire Eighty-Eight þitt. Með manni og mús, öll viðskipti, starfsfólk, eignir, lögmætar jafnt sem aðrar. Ég færi mig undir þína stjórn og mun fylgja þínum skipunum. Þú getur gert Empire Eighty-Eight að mannúðarsamtökum, selt fyrirtækið, gert okkur að ofurhetjusamtökum. Mér er sama. Ef ég get ekki heillað þig, þá er það sem ég er að gera hérna einfaldlega ekki þess virði að halda í.
 
-Þetta vakti athygli hennar. Fyrir mörgum árum hefði Kayden líklega tekið svona tilboði án umhugsunar. Eftir að hafa verið gift Max í ellefu mánuði, eftir að hafa komist að því hvaða mann hann hafði að fela, það gaf henni innsýn sem kenndi henni að hafa varann á. Hún íhugaði tilboðið í dágóðan tíma, til að reyna að átta sig á hængnum ef einhver væri. Hann var að segja henni satt vissi hún. Hvað annað sem Max var þá var hann ekki lygari, hann kæmi með blákaldar lygar til að fá sínu fram.
+Þetta vakti athygli hennar. Fyrir mörgum árum hefði Kayden líklega tekið svona tilboði án umhugsunar. Eftir að hafa verið gift Max í ellefu mánuði, eftir að hafa komist að því hvaða mann hann hafði að fela, það gaf henni innsýn sem kenndi henni að hafa varann á. Hún íhugaði tilboðið í dágóðan tíma, til að reyna að átta sig á hængnum ef einhver væri. Hann var að segja henni satt vissi hún. Hvað annað sem Max var þá var hann ekki lygari, hann kæmi ekki með blákaldar lygar til að fá sínu fram.
 
+"Gengur fyrirtækjareksturinn illa?" spurði hún. Var hann að bjóða henni köttinn í sekknum?
 
+"Fyrirtækjareksturinn og allt annað er í blóma. Lofa."
+
+"Hvað mundirðu láta mig gera?"
+
+"Meira og minna það sama og þú gerðir áður. Þú yrðir ein af hörkutólunum mínum. Sæir til þess að skipunum mínum sé framfylgt. Ef ég þyrfti þig til að refsa einhverjum fyrir feilspor til varnar öðrum þá mundirðu gera það. Eini munurinn á hlutunum þá og núna er að Empire fyrirtækið mitt er stærra. Öflugara. Þú og ég getum haft mun meiri áhrif."
+
+*Meira blóð á hendur mínar*. Þegar hugsunin kom upp í hugann leit hún á hanskaklæddar hendur sínar. Skjannahvítt klæði, sérstaklega hér undir halógen flóðljósunum. Hún vissi hvað hann var að gera, hafði vitað það þegar hún ákvað að koma. Hann fann veikleika manneskju, réðist á veikleikann, breytti veikleika viðkomandi í hans eigin styrkleika. Hann vissi að hún var örg yfir hve litlu hún var að áorka ein, hafði líklega verið tilbúinn fyrir þetta samtal þeirra fyrir dögum ef ekki vikum síðan, spilandi í gegnum það í huga sér, tilbúinn með svar við hverju því sem hún gæti sagt. Hvernig gat hún keppt við það, þegar hún sjálf horfði sjaldan lengra en fram í næstu tuttuguogfjóra tíma. Það var bara hvernig hún var, hvernig hún hugsaði.
+
+Sem var líklega ástæðan fyrir því að þau höfðu verið svo áhrifarík sem par varð hún að viðurkenna.
+
+"Svo ég spyr þig aftur, Kayden, viltu halda áfram að eyða tíma þínum í að mistakast að koma þér á framfæri á eigin spýtur, mistakast að koma í gegn breytingum, eða ertu tilbúin að ganga á ný til liðs við mig og taka þátt í að breyta hlutunum? Komdu með mér, og ég ábyrgist að þú munt sigra á einn eða annan hátt."
+
+Augun hennar lýstust upp og hárið hennar fór að verða hvítt frá rót og út í enda. Á örfáum augnablikum var hún orðin geislandi hitt sjálfið sitt. Purity.
+
+Eins og til að svara henni tók hann upp fréfaopnara og hélt honum upp við bringuna á sér. Málmblöð hófu að kvíslast út frá hnífnum og hver kvísl tvístraðist enn frekar. Hægt í byrjun fór málmnetið að hylja bringuna hans, síðan restina af líkamanum hans. Stangir, blöð, rör, málmplötur spruttu á sina staði utanum hann. Með kraftinum hans, vissi hún, gat hann látið málma spretta upp úr hvaða fasta yfirborði sem er, þar með talið málmum sem hann sjálfur hafði skapað. Eins auðveldlega og hann gat látið tíu metra löng spjót gjósa fram úr gólfi og veggjum, gat hann skapað fínlega hönnuð herklæði utanum sjálfan sig sem hann skreytti síðan með með blöðum og krulluðum oddum. Að lokum skapaði hann sér ójafna kórónu gerða úr málmblöðum.
+
+Hann rétti fram annan málmhanskann, fyrir hana að taka í. Handabandið var í raun formsatriði, en hann bauð það aldrei þegar hann taldi viðkomandi geta neitað sér um að taka í höndina á sér, og hún mat látbragðið mikils, jafnvel þó hana grunaði að til þess væri einmitt leikurinn gerður.
+
+*Fyrirgefðu mér, Aster,* hugsaði hún, *ég er að gera þetta fyrir þig.*
 
 ---
 
