@@ -4,7 +4,7 @@
 
 ### Skel 4.7
 
-Grue lyfti upp höndunum og sveipaði allt svæðið myrkri. Það myndi ekki hjálpa mikið. Jafnvel þó myrkrið fengi ABB herskarann til að hika eða ruglast þá mundi troðningurinn að lokum ná til okkar og við yrðum barin og lamin sökum gríðarlegs fjölda þeirra. Eini kosturinn var að fyrir þá sem voru vopnaðir byssum þá myndu þeir ekki skjóta sökum hræðslu um að skjóta sína eigin liðsmenn.
+Grue lyfti upp höndunum og sveipaði allt svæðið myrkri. Það myndi ef til vill ekki hjálpa mikið. Jafnvel þó myrkrið fengi ABB herskarann til að hika eða ruglast þá mundi troðningurinn að lokum ná til okkar og við yrðum barin og lamin sökum gríðarlegs fjölda þeirra. Eini kosturinn var að fyrir þá sem voru vopnaðir byssum þá myndu þeir ekki skjóta sökum hræðslu um að skjóta sína eigin liðsmenn.
 
 Ég fann hendur grípa í mittið á mér og greip kylfuna mína og barði frá mér. Hendurnar slepptu mér og ég hæfði ekkert nema loftið. Stundarkorni síðar fann ég hendur grípa í mig aftur, blíðara en áður. Ekki óvinur. Grue, áttaði ég mig á.
 
@@ -148,4 +148,4 @@ Hún lagði hendur sínar á sprengjuvörpuna sína og hallaði höfðinu til hl
 
 ---
 
-[Fyrri hluti](Ormur-04.06.x.[Sjónarhorn;Kayden].md) - Næsti hluti
+[Fyrri hluti](Ormur-04.06.x.[Sjónarhorn;Kayden].md) - [Næsti hluti](Ormur-04.08.md)
