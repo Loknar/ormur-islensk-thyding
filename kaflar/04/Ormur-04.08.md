@@ -146,8 +146,8 @@ Regent rétti út höndina, sópaði henni til hliðar, og tíu manns eða svo f
 
 Til að toppa ringulreiðina sat Bakuda enn á hlið jeppans. Annað hvort var hún hrópandi eitthvað eða skellihlæjandi. Hún var að leyfa okkur að sleppa úr greipum hennar, fólkið hennar var við það að drepa hvort annað í stundarbrjálæði, og hún hafði nýlokið við að drepa minnst eitt af hennar eigin fólki bara si svona. Miðað við það sem við höfðum séð var ég tilbúin að veðja lífi mínu á að hún var skellihlæjandi á meðan þetta allt gekk á.
 
-Næstum án þess að ég tæki eftir því hafði nóttin skollið á, og eins og til að bjóða okkur velkomin dýpra í geymsluskápavölundarhúsið, hóf að kvikna á ljósastaurunum einum af öðrum fyrir ofan okkur. Með Grue hyljandi flóttann okkar með fortjaldi myrkurs hlupum við eins og fætur okkar leyfðu.
+Næstum án þess að ég tæki eftir því hafði nóttin skollið á, og eins og til að bjóða okkur velkomin dýpra í geymsluskápavölundarhúsið byrjaði að kvikna á ljósastaurum einum af öðrum fyrir ofan okkur. Með Grue hyljandi flóttann með fortjaldi myrkurs hlupum við niður eitt sundið.
 
 ---
 
-[Fyrri hluti](Ormur-04.07.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.07.md) - [Næsti hluti](Ormur-04.09.md)
