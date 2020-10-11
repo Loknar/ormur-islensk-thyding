@@ -130,18 +130,18 @@ Nánast á sama tíma og jeppinn skall á geymsluskápnum lyppaðist Regent nið
 
 "Heyy," sagði hann með bergmálandi röddu, "ég er á lífi. Bara aðeins lemstraður. Erfitt að sjá muninn á mér sjálfum og myrkri sem er í laginu eins og ég þegar ljósin eru úti, ha? Gabbaði hana."
 
-"Gabbaðir mig. Þú hræddir helvítis líftóruna úr mér," svaraði ég, "fíflíð þitt."
+"Gabbaðir mig. Þú hræddir úr mér fjárans líftóruna," svaraði ég, "fíflíð þitt."
 
-"Gott að vita að þér stendur ekki á sama," sagði hann hálfhlæjandi, klappaði mér á höfuðið eins og ég væri hundur, "Komdu. Við skulum koma böndum á sprengjubrjálæðinginn, taka hana burt héðan svo við getum yfirheyrt hana og komist að því hvað kom fyrir Bitch og peningana. Kannski fá einhverja hugmynd um hvað er í gangi með ABB gengið."
+"Gott að vita að þér stendur ekki á sama," sagði hann hálfhlæjandi, klappaði mér á höfuðið eins og maður gerði við hunda, "Komdu. Við skulum koma böndum á sprengjubrjálæðinginn, taka hana burt héðan svo við getum yfirheyrt hana og komist að því hvað kom fyrir Bitch og peningana. Kannski fá einhverja hugmynd um hvað er í gangi með ABB gengið."
 
 Ég brosti bakvið grímuna mína, "Hljómar ve-"
 
-Ég náði ekki að klára svarið mitt. Allt varð hvítt, síðan fann ég skerandi sársauka í hverjum þumlingi líkamans sem gerði lítið úr versta sársauka sem ég hafði áður upplifað.
+Ég náði ekki að klára svarið mitt. Allt varð hvítt, síðan fann ég skerandi sársauka í hverjum þumlungi líkamans sem gerði lítið úr versta sársauka sem ég hafði áður upplifað.
 
 Allt frá því við höfðum tekið niður Über og Leet höfðum við endurtekið rétt sloppið fyrir horn. Umkringd og hundelt af herskara ABB meðlima, haldið í gíslingu með byssuhlaup beint að okkur, flýjandi svartholssprengju, næstum fryst í tíma eins og pöddur í rafi, fjöldi sprenginga. Við höfðum sloppið frá hverri hættunni á fætur annarri með rétt svo hársbreidd, vitandi að það eina sem þyrfti til væri eitt vel heppnað skot, og við værum búin, horfin, úr leik.
 
-Allt sem hafði *þurft* til var eitt gott skot.
+Allt sem hafði *þurft* var eitt gott skot.
 
 ---
 
-[Fyrri hluti](Ormur-04.08.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.08.md) - [Næsti hluti](Ormur-04.10.md)
