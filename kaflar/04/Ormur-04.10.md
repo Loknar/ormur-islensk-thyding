@@ -108,7 +108,7 @@ Höndin mín var enn fyrir aftan bakið á mér og greip um hnífahandfangið me
 
 Hafði ég yfir höfuð valið réttan fót? Tattletale sagði aldrei á hvor fætinum táhringarnir voru. Kannski var hún með þá á báðum.
 
-Önnur svört bylgja af myrkri sveif fyrir sjón mína og dofnaði jafn fljótt, ég var rétt svo meðvituð um öskur hennar. Ógleðin var farin að láta á sér kræla aftur og rétt eins og fann meðvitundina vera að renna frá mér jókst þörfin til að kasta upp. Ég var að fara að kasta upp, en ég gæti kafnað ef ég gerði það með grímuna á mér. Ef ég endaði á bakinu gæti ég jafnvel kafnað.
+Önnur svört bylgja af myrkri sveif fyrir sjón mína og dofnaði jafn fljótt, ég var rétt svo meðvituð um öskur hennar. Ógleðin var farin að láta á sér kræla aftur og rétt eins og ég fann meðvitundina vera að renna frá mér jókst þörfin til að kasta upp. Ég var að fara að kasta upp, en ég átti á hættu á að kafna ef ég gerði það með grímuna á mér. Ef ég endaði á bakinu var svo gott sem gefið að ég myndi kafna.
 
 Grue var að segja eitthvað. Gat ekki greint orðin hans. Hljómaði mikilvægt.
 
@@ -116,17 +116,17 @@ Konan var öskrandi í eyrað á mér. Runa fúkyrða, hótana, hræðilegra hlu
 
 Ef það var yfir höfuð meðvitundarleysi sem beið mín. Hrollvekjandi hugdetta um að ég væri að deyja rann upp fyrir mér og gaf mér stutta stund skýrleika. Ég einbeitti mér eins og ég gat að rugli brenglaðra mynda og hljóða, hvar ég var, það sem fólk var að segja og öskra á mig.
 
-Konan valt um á jörðinni við hliðina á mér. Þegar hún sparkaði út fætinum á sér gusaðist blóðsletta á grímulinsuna sem ég sá í gegnum. Hvað hét konan aftur? Bakuda. Hnífsoddurinn var enn fastur í malbikinu þar sem fótur hennar hafði verið. Það var harði hluturinn sem ég lenti á: malbik, ekki stáltá. Það var mikið blóð. Hennar. Bútur úr stígvélinu hennar, bleikt og blóðrautt. Tvær smærri tær með málaðar neglur, bleikar og blóðugar, í miðjum blóðpollinum.
+Konan valt um á jörðinni við hliðina á mér. Þegar hún sparkaði út fætinum á sér gusaðist blóðsletta á linsuna yfir auganu sem ég sá í gegnum. Hvað hét konan aftur? Bakuda. Hnífsoddurinn var enn fastur í malbikinu þar sem fótur hennar hafði áður verið. Það var harði hluturinn sem ég lenti á: malbik, ekki stáltá. Það var mikið blóð. Hennar. Bútur úr stígvélinu hennar, bleikt og blóðrautt. Tvær smærri tær með málaðar neglur, bleikar og blóðugar, í miðjum blóðpollinum.
 
-Ég reyndi en mistókst að draga hnífinn lausan, þó hann væri aðeins um hálfan sentimeter djúpt ofan í malbikið. Áreynslan lét mig þurfa að taka andköf til að fylla lungun af lofti. Hver andardráttur lét mig líða eins og ég hefði andað að mér gaddavír og heit járn þrýstu á hliðar mínar. Ég óskaði þess innilega að þörfin til að æla myndi hjaðna, vissi að það myndi ekki gerast.
+Ég reyndi en mistókst að draga hnífinn lausan, þó hann væri aðeins um hálfan sentimetra djúpt ofan í malbikið. Áreynslan lét mig þurfa að taka andköf til að fylla lungun af lofti. Hver andardráttur lét mér líða eins og ég hefði andað að mér gaddavír og heit járn þrýstu á hliðar mínar. Ég óskaði þess innilega að þörfin til að æla myndi líða hjá, vissi að það var ekki að fara að gerast.
 
 Grue. Hvað var hann að segja? Ég gat varla skilið Bakuda lengur með vélrænu grímuna hennar. Að skilja Grue var tuttugu sinnum erfiðara. Eins og annað tungumál.
 
 Lettu meþ nifin. Hnífinn? Hnífurinn. Hann vildi fá hnífinn.
 
-Ég lét mig detta á framhliðina, andlitið í jörðina, svo ég myndi síður kafna. Höndin sem hélt í hnífinn var kyrr en handleggurinn á mér beygðist í slæma stöðu og kallaði fram nístandi sársauka. Úlnliðurinn og olnboginn minn snerust óþægilega, þvingaðir til að snúast aftur í eðlilega stöðu. Ég stóðst þörfina til að sleppa takinu, hélt áfram dauðahaldi í hnífshandfangið.
+Ég lét mig detta á framhliðina, andlitið í jörðina, svo ég myndi síður kafna. Höndin sem hélt í hnífinn var kyrr en handleggurinn á mér beygðist í slæma stöðu og kallaði fram nístandi sársauka. Úlnliðurinn og olnboginn minn snerust óþægilega, þvingaðir til að færast aftur í eðlilega stöðu. Ég barðist við löngunina að sleppa takinu, hélt áfram dauðahaldi í handfangið.
 
-Jörðin gaf eftir áður en ég gerði það og hnífurinn var laus. Ég rétti úr handleggnum, teygði hann fram fyrir mig, hnífurinn í svörtu hanskaklæddu höndinni. Ég leit upp frá hnífnum til að sjá þokukennda mynd af Grue sem barðist við að losa sig úr einhverjum fjötrum sem umluktu hann, það síðasta sem ég sá áður en myrkur og miskunnsamt meðvitundarleysi greip mig.
+Malbikið gaf eftir áður en ég gerði það og hnífurinn var laus. Ég rétti úr handleggnum, teygði hann fram fyrir mig, hnífurinn í svörtu hanskaklæddu höndinni. Ég leit upp frá hnífnum til að sjá þokukennda mynd af Grue sem barðist við að losa sig úr einhverjum fjötrum sem umluktu hann, það síðasta sem ég sá áður en myrkur og miskunnsamt meðvitundarleysi greip mig.
 
 ---
 
