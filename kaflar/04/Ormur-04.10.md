@@ -130,4 +130,4 @@ Malbikið gaf eftir áður en ég gerði það og hnífurinn losnaði. Ég rétt
 
 ---
 
-[Fyrri hluti](Ormur-04.09.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.09.md) - [Næsti hluti](Ormur-04.11.md)
