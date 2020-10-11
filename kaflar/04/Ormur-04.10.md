@@ -42,7 +42,7 @@ Bakuda svaraði með áhugalausu, "Suss, engar áhyggjur. Það kemur að þér 
 
 Hún sleppti takinu á mér og steig í burtu eins og ég væri umlukin eldi. Þegar höfuð mitt skall í malbikið lognaðist ég næstum útaf. Þurfti að berjast til að gera það ekki. *Notaðu sársaukann. Haltu þér vakandi*.
 
-Stutt frá mér bergmálaði rödd Grue. Ég náði aðeins fyrstu orðunum fyrstu orðunum. "Hún er" eða "Húnar". Hann hló. Það hræddi mig að ég gat ekki skilið hann, að ég gat ekki fattað hvers vegna ég gat ekki skilið hann. Ég heyrði ekki eins vel og ég átti að gera, ég vissi það. En það var ekki allt. Hvað annað?
+Stutt frá mér bergmálaði rödd Grue. Ég náði aðeins fyrstu orðunum. "Hún er" eða "Húnar" kannski. Hann hló. Það hræddi mig að ég gat ekki skilið hann, að ég gat ekki skilið hvers vegna ég gat ekki skilið hann. Ég heyrði ekki eins vel og ég átti að gera, ég vissi það. En það var ekki allt. Hvað annað?
 
 Brenglunin. Sprengingin eða sprengingarnar höfðu skemmt heyrnina mína, kannski, og ég gat ekki greint orðin hans með þeim áhrifum sem máttur hans hafði á rödd hans. Bara að finna það út, vita að ég gat áttað mig á því, lét mér líða hundrað sinnum betur.
 
