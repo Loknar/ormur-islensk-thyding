@@ -34,7 +34,7 @@ Bakuda svaraði með áhugalausu, "Suss, engar áhyggjur. Það kemur að þér 
 
 Ég var bara hlustandi á hana með hálfum hug. Eins og biluð plata þuldi ég endurtekið það sama í huganum. Bakuda, skóli, berjast.
 
-"Bakuda, skóli," muldraði ég. Að heyra hversu veikluleg og þunn röddin mín var skelfilegra en nokkuð annað sem hafði vakið athygli mína síðustu mínúturnar.
+"Bakuda, skóli," muldraði ég. Að heyra veiklulega og þunna röddina mína var skelfilegra en nokkuð annað sem hafði vakið athygli mína síðustu mínúturnar.
 
 "Hvað? Langar pöddustelpuna að segja eitthvað?" Hún hallaði sér niður og greip í bringubrynjuna á búningnum mínum. Með þjösnaskap dró hún mig í hálfa setustöðu. Að vera toguð svona upp var pynting, en sársaukinn hjálpaði mér að skerpa hugsanir mínar og öðlast meiri skýrleika í kollinum.
 
