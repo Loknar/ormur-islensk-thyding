@@ -40,7 +40,7 @@ Bakuda svaraði með áhugalausu, "Suss, engar áhyggjur. Það kemur að þér 
 
 "Skóli. Bakuda féll," svaraði ég henni, rödd mín aðeins lítillega sterkari en hún hafði verið í fyrri tilraun minni. Svörtrauðu linsurnar á gleraugunum hennar voru límdar á mér á meðan ég kom reglu á hugsanir mínar til að tala aftur og reyna að hljóma heildstæðari. "Eins klár og þú heldur að þú sért, að mistakast svona? Hvað var það? Annað sæti? Ekki einu sinni annað?" Mér tókst að láta út úr mér eitthvað sem líktist hlátri.
 
-Hún sleppti takinu á mér og steig í burtu eins og ég væri umlukin eldi. Þegar höfuð mitt skall í malbikið lognaðist ég næstum útaf. Þurfti að berjast til að gera það ekki. *Notaðu sársaukann. Haltu þér vakandi*.
+Hún sleppti takinu á mér og steig í burtu eins og ég væri umlukin eldi. Þegar höfuð mitt skall í malbikið lognaðist ég næstum útaf. Þurfti að berjast við að gera það ekki. *Notaðu sársaukann. Haltu þér vakandi*.
 
 Stutt frá mér bergmálaði rödd Grue. Ég náði aðeins fyrstu orðunum. "Hún er" eða "Húnar" kannski. Hann hló. Það hræddi mig að ég gat ekki skilið hann, að ég gat ekki skilið hvers vegna ég gat ekki skilið hann. Ég heyrði ekki eins vel og ég átti að gera, ég vissi það. En það var ekki allt. Hvað annað?
 
@@ -50,9 +50,9 @@ Brenglunin. Sprengingin eða sprengingarnar höfðu skemmt heyrnina mína, kanns
 
 Hún sparkaði í andlitið á mér með einu af bleiku stígvélunum. Að þurfa að hreyfa höfuðið var sársaukafyllra en höggið í andlitið og tennurnar. Hún greip í búninginn minn og dró mig örfáa metra. Að vera hreyfð svona skrúfaði upp allan sársaukann. Á skalanum einn til tíu var þetta góð heilsteypt níu komma fimm. Ekkert sem ég gat gert hefði getað aukið sársaukann meira, svo ég fann vilja- og líkamsstyrkinn til að teygja mig upp og grípa í úlnliðinn á henni, hversu gagnslaust sem það var. Hún sleppti mér og ýtti mér síðan svo ég lægi á hliðinni. Hreyfingin fékk mig til að þurfa að kasta upp.
 
-Að sjá Grue hjálpaði mér að jarðtengja mig, þar sem ég barðist við ógleðina og andaði agnarsmáum andardráttum sökum verkja. Hann var bundinn í hálfsitandi stöðu við skáp með einhverju sem leit út eins og lengjur úr klístruðum gullborða. Hvar var Tattletale?
+Að sjá Grue hjálpaði mér að jarðtengja mig, þar sem ég barðist við ógleðina og andaði agnarsmáum andardráttum sökum verkja. Hann var bundinn í hálfsitjandi stöðu við geymsluskáp með einhverju sem leit út eins og lengjur úr klístruðum gullborða. Hvar var Tattletale?
 
-"Við skulum sjá hversu klár þið tvö eruð eftir að ég gef hávaxna, myrka og dularfulla stráknum gottið hans," hvæsti Bakuda, "látum okkur sjá ... hérna. Þessi er góð. Tveir tuttuguogsjö. Sittu nú kyrr. Ef þú svo mikið sem hugsar um að nota kraftinn þinn þá skal ég bara ýta henni niður í kokið á pöddukvikindinu í staðinn, setja hana svo af stað stax að því loknu. Ekki eins og þú sért í aðstöðu til að koma í veg fyrir að ég geti sett hana í þig, jafnvel þó að ég sé hálfheyrnarlaus og sjónskert."
+"Við skulum sjá hversu klár þið tvö eruð eftir að ég gef hávaxna, myrka og dularfulla stráknum gottið hans," hvæsti Bakuda, "látum okkur sjá ... hérna. Þessi er góð. Tveir tuttuguogsjö. Sittu nú kyrr. Ef þú svo mikið sem hugsar um að nota kraftinn þinn þá skal ég bara ýta henni niður í kokið á pöddukvikindinu í staðinn, setja hana svo af stað strax að því loknu. Ekki eins og þú sért í aðstöðu til að koma í veg fyrir að ég geti sett hana í þig, jafnvel þó að ég sé hálfheyrnarlaus og sjónskert eftir veltuna."
 
 Hún tók af sér bleiku hanskana og henti þeim til hliðar. Síðan dró hún fram tól sem leit út eins og löng og mjó skæri úr erminni. Nema þau voru blaðlaus, ekki beitt. Eins og tangir, næstum því. Þau smelltust saman þegar hún klemmdi á oddinn á þeim einhverju sem leit út eins og tveggja og hálfs sentimetra löng málmpilla.
 
