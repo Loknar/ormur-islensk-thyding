@@ -54,7 +54,7 @@ En á heildina litið? Þá var þetta mikill léttir. Mér leið vel.
 
 Ég greip strætisvagn niður í bryggjuhverfið en hélt ekki í risið. Ég gekk áleiðis norður meðfram Boardwalk ströndinni, þar til búðarkjarnarnir tóku að þynnast og ströndin varð víðari. Megingatan sem fólk keyrði inn frá hliðargötu sveigði og lá út úr bænum, en fyrir fólk sem ferðaðist þarna fótgangandi þá þurfti að stytta sér leið í gegnum fjölda mjög svipaðra svæða. Áfangastaðurinn minn var rétt svo nógu innarlega á því svæði þannig að flestir tóku ekki eftir honum.
 
-Opinberlega hét svæðið Lord Street Market. En íbúar Brockton Bay kölluðu það bara 'markaðinn'.
+Opinberlega hét svæðið Lord Street markaðurinn. En íbúar Brockton Bay kölluðu það bara 'markaðinn'.
 
 Markaðurinn var opinn alla vikuna, en flestir leigðu bara sölubása þar um helgar. Það var frekar ódýrt, þú gast leigt bás fyrir um fimmtíu til hundrað dali á virkum degi og tvöhundruðogfimmtíu til þrjúhundruð um helgar, allt eftir því hve mikil aðsókn var. Sölubásarnir voru með allt frá heimagerðu handverki eftir brjálaðar kattakerlingar yfir í offramboð af dýrum merkjavarningi sem seldist á tíu til tuttuguogfimm prósent lægra verði en annarstaðar. Það voru íssölur og fólk að selja hvolpa, það voru túristasjoppur sem seldu glingur og listaverk og básar sem seldu merkjavarning tengdan skikkjum svæðisins. Það voru rekkar með fötum, bókum, tölvudóti og matvælum. Ef þú bjóst í norðurhluta Brockton Bay varstu aldrei með bílskúrssölu heldur leigðirðu bás á markaðnum. Fyrir fólk sem vildi einfaldlega versla þá var úrvalið álíka gott í hverri annarri verslunarmiðstöð.
 
