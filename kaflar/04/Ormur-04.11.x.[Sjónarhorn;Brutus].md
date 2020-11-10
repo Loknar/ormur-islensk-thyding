@@ -56,7 +56,7 @@ En má ekki verða of spenntur. Brutus er góður voffi. Togar ekki í tauminn e
 
 Meistari labbar hægar en venjulega. Notar meira aðra löppina en hina. Brutus er ákafur að labba en togar ekki í tauminn jafnvel þó Meistari gangi hægar en venjulega.
 
-Svo mikið af lyktum! Að vera í eigin umráðasvæði er gott en að fara í göngutúr er að þefa af öllum heiminum. Alltaf eitthvað nýtt, alltaf nýjir hlutir til að þefa af um gamla hluti. Þefa af þessu pissi og veit næstum allt um hundinn sem þefaði. Tík. Mun mögulega lóða á næstunni. Býr með krökkum. Piss lyktar eins og stress og borða of mikið gras og sofa og mikið og vera feitur hundur.
+Svo mikið af lyktum! Að vera í eigin umráðasvæði er gott en að fara í göngutúr er að þefa af öllum heiminum. Alltaf eitthvað nýtt, alltaf nýjir hlutir til að þefa af um gamla hluti. Þefa af þessu pissi og veit næstum allt um hundinn sem þefaði. Tík. Mun mögulega lóða á næstunni. Býr með krökkum. Piss lyktar eins og stress og borða of mikið gras og sofa of mikið og vera feitur hundur.
 
 Þefa af þessum kúk til að læra hluti um hundinn sem kúkaði. Soltinn hundur. Meistari soltna hundsins líklega soltinn líka. Margir svoleiðis hér um slóðir. Ekki eins og gamla heimilið hans Brutusar. Hvorki fólk né hundar voru sveltandi þar um slóðir. En Brutus man að hann var óhamingjusamur. Gamli Meistarinn hunsaði alltaf Brutus. Skildi Brutus einan eftir í kjallara allan dag þar til Brutus stoppaði vondan kall sem kom inn um kjallaragluggann. Er í lagi núna. Brutus er hamingjusamur með nýja Meistara.
 
@@ -128,7 +128,7 @@ Fólk liggur á gólfinu kjökrandi. Lyktar eins og blóð og hræðsla. Enginn 
 
 Meistari kallar, "Ekki meira!" og orðin eru fyrir fólkið og ekki fyrir Brutus. Bæði orðin eru orð sem Brutus þekkir. Ekki þýðir vont og er fyrir hluti sem Brutus ætti ekki að gera. Meira er það sem Meistari segir þegar hún gefur nammi eða kastar boltum eða fyllir matarskálar af mat. Brutus skilur ekki vegna þess að annað orðið er vont en hitt gott. En Meistari er aðal og Meistari veit svo það er í lagi.
 
-Meistari tekur upp hringlandi lykla frá kjökrandi manneskju og tekur upp búr með reiðum hundi í sem lyktar eins og blóð. Meistari tekur búr út og setur í bíl og segir Brutusi að passa bílana. Eitthvað fólk yfirgefa rýmið en Brutus hleypir engum nálægt bílunum. Er góður voffi. Meistari fer inn og sækir fleiri búr með reiðum hundum og setur þá alla í bílinn. Svo fer Meistari aftur inn. Meistari nær í bakpoka og notar reipi úr bakpokanum til að binda búrin saman og binda búrin föst við bílinn.
+Meistari tekur upp hringlandi lykla frá kjökrandi manneskju og tekur upp búr með reiðum hundi í sem lyktar eins og blóð. Meistari tekur búr út og setur í bíl og segir Brutusi að passa bílana. Fjöldi fólks er að yfirgefa rýmið en Brutus hleypir engum nálægt bílunum. Er góður voffi. Meistari fer inn og sækir fleiri búr með reiðum hundum og setur þá alla í bílinn. Svo fer Meistari aftur inn. Meistari nær í bakpoka og notar reipi úr bakpokanum til að binda búrin saman og binda búrin föst við bílinn.
 
 Svo fer Meistari inn í langan tíma og kemur ekki út aftur. Fólk er farið svo Brutus þarf ekki að passa bílana lengur. Brutus fer inn til Meistara.
 
