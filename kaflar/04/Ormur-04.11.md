@@ -26,9 +26,9 @@ Mér var hlýtt, allt var svo notalegt. Eins og að vakna í hlýju rúmi á kö
 
 "Hey þyrnirós," djúpa röddinn aftur. Ég fann stóra hönd hvíla á enninu, strjúka hárinu mínu aftur, minnti mig á mömmu og pabba aftur. Að vera krakki, að vera undir verndarvæng fullorðinna.
 
-Gamli maðurinn og stelpan voru enn að rífast. Tónninn hennar var pirringslegur. "-heilahristingur, alvarlegur blóðmissir, mar, að utan og innan, plús hvað sem það var sem gerðist við taugakerfið hennar, skilið? Ég hef enga ástæðu til að ljúga að þér."
+Gamli maðurinn og stelpan voru enn að rífast. Tónninn hennar var pirringslegur. "Heilahristingur, alvarlegur blóðmissir, mar, útvortis og innvortis, plús hvað sem það var sem gerðist við taugakerfið hennar, náðirðu þessu? Ég hef enga ástæðu til að ljúga að þér."
 
-"Það sem ég er að reyna að benda á er að ef það er eitthvað meira að, sem veldur hugsanlega alvarlegum eftirmálum, þá er það á þína ábyrgð, vegna þess að ég er að fara að treysta á að það sem þú ert að segja mér sé rétt. Ég vil auðvitað ekki að stelpan deyji eða endi uppi með alvarlegan og jafnvel varanlega heilaskaða, en ef það gerist get ég ekki borið ábyrgð á því, og ég-"
+"Það sem ég er að reyna að benda á er að ef það er eitthvað meira að, sem veldur hugsanlega alvarlegum eftirmálum, þá er það á þína ábyrgð, vegna þess að ég er að fara að treysta á að það sem þú ert að segja mér sé rétt. Ég vil auðvitað ekki að stelpan deyji eða endi uppi með alvarlegan og jafnvel varanlegan heilaskaða, en ef það gerist get ég ekki borið ábyrgð á því, og ég-"
 
 "Ef eitthvað gerist sem afleiðing af því að ég hafði rangt fyrir mér, og ef það er ekki vegna þess að þú eða tækin þín gáfu mér rangar upplýsingar, þá skal ég taka fulla ábyrgð. Ég mun skila því til hans, orðspor þitt er öruggt. Lofa."
 
@@ -56,7 +56,7 @@ Brian leit yfir herbergið, "Við erum búin að þétta hurðar og glugga með 
 
 "Tónlist? Lisa varð skyndilega mjög áhyggjufull. Hún leit á Brian."
 
-"úti. Fyrir framan útidyrahurðina. Snjallsími, kannski. Það er maður, hlustandi á tónlist. Kannski er hann ekki með heyrnartólin á eða í eyrunum. Eða kannski eru heyrnartólni ekki tengd við símann. Hljómar eins og rokk eða popp. Spænska? Portúgalska? Eða enska? Bæði? Þetta síðasta hljómaði japanskt. Er rasískt af mér að ég geti ekki greint muninn?"
+"Úti. Fyrir framan útidyrahurðina. Snjallsími, kannski. Það er maður, hlustandi á tónlist. Kannski er hann ekki með heyrnartólin á eða í eyrunum. Eða kannski eru þau ekki tengd við símann. Hljómar eins og rokk eða popp. Spænska? Portúgalska? Eða enska? Bæði? Þetta síðasta hljómaði japanskt. Er rasískt af mér að ég geti ekki greint muninn?"
 
 "Þú ert að tala tóma þvælu, Taylor," sagði Brian, ekki óvingjarnlega.
 
@@ -104,7 +104,7 @@ Stelpan - Lisa, ég bar kennsl á hana núna - svaraði, "Hún er sofandi, og mu
 
 "Allt í lagi. Gott."
 
-Ég var lögð niður, og saknaði strax líkamshitans og nándarinnar sem ég hafði haft áður. Síðan dró einhver yfir mig heitt teppi beint úr þurrkaranum og lagði þétta sæng utanum mig, ég ákvað að ég gæti sætt mig við það.
+Ég var lögð niður, og saknaði strax líkamshitans og nándarinnar sem ég hafði haft áður. Síðan dró einhver yfir mig heitt teppi beint úr þurrkaranum og lagði þétta sæng utan um mig, ég ákvað að ég gæti sætt mig við það.
 
 "Ef þið gætuð komið inn í eldhús? Húsið okkar er ekki stórt og ég er hræddur um að það sé ekki nóg pláss fyrir okkur öll í stofunni með svefnsófann útlagðan. Með okkur í eldhúsinu fær hún líka meira næði."
 
@@ -128,7 +128,7 @@ Pabbi, Lisa og Brian. Saman við eldhúsborðið mitt. Ég hélt augunum hálflo
 
 "Ætti ég að fara með hana upp á heilsugæslu og láta lækni kíkja á hana?"
 
-"Þú *getur* gert það. En pabbi minn er læknir, og hann skoðaði og meðhöndlaði hana á klíníkinni hjá sér. Tók í nokkra spotta til að koma henni í sneiðmyndatöku og segulóm. Hann vildi vera fullviss um að hún væri ekki með heilaskaða áður en hann færi að gefa henni sterkari verkjalyf. Hérna. Ég er með glasið í einum vasanum. Þarna. Þetta er Kódín. Hún mun líklega fá mjög sársaukafulla höfuðverki, og hún var veinandi í svefni af verkjum þegar verst var. Gefðu henni eina töflu fjórum sinnum á dag, en bara ef henni finnst hún þurfa það. Ef hún er ekki of verkjuð slepptu því þá að gefa henni töflu. Eða gefðu henni bara tvisvar á dag, eða hálfa töflu fjórum sinnum á dag."
+"Þú *getur* gert það. En pabbi minn er læknir, og hann skoðaði og meðhöndlaði hana á klíníkinni hjá sér. Togaði í nokkra spotta til að koma henni í sneiðmyndatöku og segulóm. Hann vildi vera fullviss um að hún væri ekki með heilaskaða áður en hann færi að gefa henni sterkari verkjalyf. Hérna. Ég er með glasið í einum vasanum. Þarna. Þetta er Kódín. Hún mun líklega fá mjög sársaukafulla höfuðverki, og hún var veinandi í svefni af verkjum þegar verst var. Gefðu henni eina töflu fjórum sinnum á dag, en bara ef henni finnst hún þurfa það. Ef hún er ekki of verkjuð slepptu því þá að gefa henni töflu. Eða gefðu henni bara tvisvar á dag, eða hálfa töflu fjórum sinnum á dag."
 
 "Hversu mikið?"
 
@@ -170,7 +170,7 @@ Lisa hló, svo náttúrulega að engan hefði grunað neitt, "Já, ég var með 
 
 "Bakuda, var það ekki? Já, nokkuð viss um að það sé rétt hjá mér. Við vorum að stytta okkur leið í gegnum Bryggjuhverfið á leið okkar frá Lord Street markaðnum, og ég giska á að við enduðum á röngum stað á röngum tíma. Eina stundina var allt í hinu stakasta, svo, skyndilega glundroði. Brian hélt á innkaupapokum fyrir Taylor á meðan hún stoppaði til að reima skóna, þannig að hún var örlítið á eftir okkur hinum þegar það gerðist. Brian og ég stóðum upp eftir sprenginguna, en Alec, Rachel og Taylor gerðu það ekki. Við urðum strax dauðhrædd um Taylor liggjandi þarna, af því að blóðið sást strax."
 
-"Guð."
+"Ó guð."
 
 Ég laumaðist til að opna augun til að líta inn í eldhús, ég sá pabba minn sitjandi við eldhúsborðið, með andlitið hulið í höndunum. Ég kyngdi hnefastórum kökk af samviskubiti sem hafði myndast í hálsinum og skellti aftur augunum.
 
@@ -180,7 +180,7 @@ Lisa hló, svo náttúrulega að engan hefði grunað neitt, "Já, ég var með 
 
 "Ég verð að spurja-" byrjaði pabbi minn, "Hvers vegna .. ?" Hann þagnaði, í vandræðum með að finna góða leið til að orða spurninguna.
 
-"Vanalega myndum við ekki stytta okkur leið í gegnum þennan hluta borgarinnar," sagði Lsa, "En við vorum fimm saman, og þú veist .. líttu á Brian. Mundir þú vilja abbast upp á einhvern eins og hann?"
+"Vanalega myndum við ekki stytta okkur leið í gegnum þennan hluta borgarinnar," sagði Lisa, "En við vorum fimm saman, og þú veist .. líttu á Brian. Mundir þú vilja abbast upp á einhvern eins og hann?"
 
 "Vá, takk Lís," sagði Brian. Síðan hlógu hann og pabbi minn.
 
@@ -226,11 +226,11 @@ Pabbi hló aftur. "Ég ætla að hætta núna, áður en ég segi eitthvað sem 
 
 "Nei, en ég vil ykkur ekki hérna." Andlegu hömlurnar sem hefðu átt að stöðva mig frá því að segja þetta upphátt virtust vera óvirkar. Ég lokaði augunum og fann heitann roðann hellast yfir kinnarnar mínar.
 
-"Ég- fyrirgefðu, svo mikið, fyrirgefðu .. þetta kom ekki rétt út. Ég er þakklát fyrir það sem þið gerðuð. Þið eruð frábær og að hanga með ykkur hefur verið mesta skemmtun sem ég hef haft í mörg ár. Ég er svo glöð að þið séuð hérna, og mér þætti ekkert betra en að bara taka því rólega og slaka á eftir allt þetta, en-"
+"Ég- fyrirgefðu, svo mikið, fyrirgefðu .. þetta kom ekki rétt út úr mér. Ég er þakklát fyrir það sem þið gerðuð. Þið eruð frábær og að hanga með ykkur hefur verið mesta skemmtun sem ég hef haft í mörg ár. Ég er svo glöð að þið séuð hérna, og mér þætti ekkert betra en að bara taka því rólega og slaka á eftir allt þetta, en-"
 
-Lisa lagði fingur á varir mínar til að þagga niður í mér. "Ég veit. Þú vilt halda þessum tveimur heimum í lífi þínu aðskildum. Mér þykir það leitt, en það var engin leið framhjá þessu. Þú varst slösuð og við gátum ekki haldið þér einhverstaðar í leynum án þess að pabbi þinn færi að hafa áhyggjur af þér og jafnvel færi til lögreglunnar til að láta lýsa eftir þér."
+Lisa lagði fingur á varir mínar til að þagga niður í mér. "Ég veit. Þú vilt halda þessum tveimur heimum í lífi þínu aðskildum. Mér þykir það leitt, en það var engin leið framhjá þessu. Þú varst slösuð og við gátum ekki haldið þér einhverstaðar í leynum án þess að pabbi þinn færi að hafa áhyggjur af þér og færi jafnvel til lögreglunnar til að láta lýsa eftir þér."
 
-Ég leit niður, "Já ég skil."
+Ég leit niður, "Já."
 
 "Þú verður líklega svolítið völt á fæti næstu daga. Grimmur, uhm, heiðarleiki þinn nú rétt í þessu var líklega fylgikvilli heilahristingsins sem þú fékkst. Þú gætir upplifað sterkar skapsveiflur, mögulega minni hömlur, eins og að þú sért örlítið drukkin. Minnið þitt gæti verið örlítið óáreiðanlegt, þú gætir átt erfiðara með að skipuleggja þig, skapsveiflurnar geta orðið verulega miklar á köflum, þú gætir upplifað eitthvað eins og óstjórnleg gráturköst. Þú gætir átt erfiðara með að lesa í líkamstjáningu annarra. Þú vinnur í að koma þér í gegnum það allt, við reynum að sýna þér skilning ef þú segir eitthvað sem þú mundir annars ekki segja. Bara .. reyndu að láta ekkert persónulegt flakka í kringum pabba þinn, svo ekkert flakki? Þetta ætti allt að líða hjá áður en langt um líður."
 
@@ -252,7 +252,7 @@ Hún færði höfuðið sitt svo hún og ég deildum koddanum mínum, "Hvar vilt
 
 Ég fékk hroll. Bara það að muna hversu mikill sársaukinn hafði verið lét mig kippast við, eins og að heyra neglur dregnar yfir krítarborð.
 
-"Ég var lengra í burtu, og ég held að líkami þinn hafi að hluta skýlt Brian, eða kannski hjálpaði krafturinn hans honum, vegna þess að hann kom ekki nærri því eins illa út úr sprengingunni og þú, þó hann hafi verið vankaður nógu lengi til að Bakuda hefði tíma til að hlaða sprengjuvörpuna sína og skjóta tvemur hleðslum af þessu límkennda strengjadæmi. Þegar þar var komið vorum við frekar hætt komin. Þar til þú snerir við taflinu."
+"Ég var lengra í burtu, og ég held að líkami þinn hafi að hluta skýlt Brian, eða kannski hjálpaði krafturinn hans honum, vegna þess að hann kom ekki nærri því eins illa út úr sprengingunni og þú, þó hann hafi verið vankaður nógu lengi til að Bakuda hefði tíma til að hlaða sprengjuvörpuna sína og skjóta tvemur hleðslum af þessu límkennda strengjadæmi. Þegar þangað var komið vorum við frekar hætt komin. Þar til þú snerir taflinu við."
 
 "Ég stakk hana í fótinn," mundi ég skyndilega.
 
@@ -272,13 +272,13 @@ Lisa hélt áfram, "Ég hringdi í stjórann, hann sendi okkur til læknis sem h
 
 "Fyrirgefiði."
 
-"Ekkert til að biðjast fyrirgefningar á. En allavega, það rættist meira og minna úr þessu öllu saman. Læknirinn fjarlægði hylkið úr nefinu á Brian, saumaði þónokkur spor í hnakkann á þér, tók sneiðmynd af Regent. Ég sat og fylgdist með þér á meðan Brian fór og fann Rachel, hundinn hennar og peningana. Einungis um tvö til þrjúþúsundu dali vantaði, sem einhver taldi sig geta látið hverfa úr pokunum áður en það væri allt talið. Stjórinn okkar sendi sendibíl til að sækja pokana rétt eftir miðnætti. Peningar sem hann lét okkur fá fyrir verkið eru nú þegar í leynifylgsninu okkar, og meira á leiðinni þegar hann hefur ákveðið hvers virði pappírarnir eru."
+"Ekkert til að biðjast fyrirgefningar á. En allavega, það rættist meira og minna úr þessu öllu saman. Læknirinn fjarlægði hylkið úr nefinu á Brian, saumaði þónokkur spor í hnakkann á þér, tók sneiðmynd af Regent. Ég sat og fylgdist með þér á meðan Brian fór og fann Rachel, hundinn hennar og peningana. Einungis um tvö til þrjúþúsund dali vantaði, sem einhver taldi sig geta látið hverfa úr pokunum áður en það væri allt talið. Stjórinn okkar sendi sendibíl til að sækja pokana rétt eftir miðnætti. Peningar sem hann lét okkur fá fyrir verkið eru nú þegar í leynifylgsninu okkar, og meira á leiðinni þegar hann hefur ákveðið hvers virði pappírarnir eru."
 
 "Þú sagðir að það rættist meira og minna úr þessu, og þú ert ekki enn búin að segja mér slæmu fréttir númer tvö. Hvað ertu ekki að segja mér?"
 
 Hún andvarpaði, "Ég var eiginlega að vona að þú værir of ringluð til að spurja. Ertu viss um að þú viljir vita það?"
 
-"Í rauninni ekki. En ég á eftir að vera rúmföst hérna í einhvern tíma, á meðan ég jafna mig, ég vil ekki eyða tímanum í að velta mér uppúr hvað það gæti verið og láta ímyndunaraflið um að giska á hvað það gæti verið í versta falli."
+"Í rauninni ekki. En ég á eftir að vera rúmföst hérna í einhvern tíma, á meðan ég jafna mig, ég vil ekki eyða tímanum í að velta fyrir mér hvað það gæti verið og láta ímyndunaraflið um að giska á hvað það gæti verið í versta falli."
 
 "Þá það." Hún veiddi blaðaúrklippu úr jakkavasanum sínum og rétti mér. Nema hún var rifin en ekki klippt. Blaðaúrrifu? Efst á henni var fyrirsögn í stórum feitletruðum stöfum, 'Sloppinn'.
 
@@ -286,17 +286,17 @@ Hún andvarpaði, "Ég var eiginlega að vona að þú værir of ringluð til a�
 
 "Ég skal segja þér innihaldið í grófum dráttum. Rétt áður en hún hóf eftirför á eftir okkur á jeppanum setti Bakuda af stað aðra áætlun. Sprengjur hófu að springa hér og þar út um alla borgina. Tók út nokkur mikilvæg spennuvirki til að meina heilu borgarhlutunum um rafmagn, að auki sprengdi hún upp skóla, brýr, lestarteina .. listinn heldur áfram. Fólk er skelfingu lostið. Þetta er forsíðufrétt, það er ekki talað um annað á öllum sjónvarpsrásum. Um tuttugu dauðsföll hafa verið staðfest hingað til, og þá er ekki meðtalið líkamsleifar sem á eftir að bera kennsl á, og ekki heldur þau fjögur sem hún sprengdi upp á meðan hún hélt okkur í gíslingu með byssuhlaupum beint af okkur."
 
-Ljóslifandi sýn af því sem kom fyrir Park Jihoo leiftraði inn í hugann. *Hann dó. Hann var dáinn. Ég þekkti hann ekki neitt, en hann er horfinn að eilífu, og ég gat ekki gert neitt til að bjarga honum.*
+Ljóslifandi sýn af því sem kom fyrir Park Jihoo leiftraði inn í hugann. *Hann dó. Hann var dáinn. Ég þekkti hann ekki neitt, en hann var horfinn að eilífu, og ég gat ekki gert neitt til að bjarga honum.*
 
 "Hér koma svo seinni slæmu tíðindin. Þetta allt saman? Allt til að draga athyglina frá öðru. Eitthvað til að halda öllum skikkjum borgarinnar uppteknum, á meðan Oni Lee braust inn í höfuðstöðvar PHQ og leysti Lung úr haldi."
 
 Ég gaf frá mér langt andvarp. "Andskotinn sjálfur."
 
-"Það ríkir stríðsástand í borginni þessa stundina. ABB gengið er tólf sinnum stærra en það var fyrir tveimur vikum, og Bakuda virðist vera gjörsamlega stjórnlaus. Fjöldi sprenginga á nokkurra klukkustunda fresti, en ekki beint að lykilskotmörkum í þetta sinn. Beint að fyrirtækjum, leiguhúsnæðum, vöruhúsum, skipum. Mín ágiskun er að skotmörkin hennar séu svæði sem hinar stóru glæpaklíkurnar halda til á, eða svæði sem þær halda líklega til á. Ég veit ekki hvað er að fara að gerast."
+"Það ríkir stríðsástand í borginni þessa stundina. ABB gengið er tólf sinnum stærra en það var fyrir tveimur vikum, og Bakuda virðist vera gjörsamlega stjórnlaus. Fjöldi sprenginga á nokkurra klukkustunda fresti, en ekki beint að innviðalykilskotmörkum í þetta sinn. Beint að fyrirtækjum, leiguhúsnæðum, vöruhúsum, skipum. Mín ágiskun er að skotmörkin hennar séu svæði sem hinar stóru glæpaklíkurnar halda til á, eða svæði sem þær halda líklega til á. Ég veit ekki hvað er að fara að gerast."
 
 "Maður hefði haldið að það að missa þriðjung af tánum mundi hægja á henni, ef eitthvað," sagði Brian.
 
-Lisa hristi hausinn. "Hún er í maníukasti. Hún á eftir að brenna út, ef hún hefur ekki nú þegar brunnið út, og sprengingarnar munu hætta fljótlega. En með Lung sem endurskipaðan leiðtoga, það þýðir að ABB gengið er ekki að fara að hægja neitt á sér. Það er líklegt að hann muni reyna að nýta sér forskotið sem Bakuda hefur skapað honum. Það er bara spurningum um hvar, hvenær, og hversu mikið. Fer eftir því formi sem hann er í núna."
+Lisa hristi hausinn. "Hún er í maníukasti. Hún á eftir að brenna út, ef hún hefur ekki nú þegar brunnið út, og sprengingarnar munu hætta fljótlega. En með Lung sem endurskipaðan leiðtoga, það þýðir að ABB gengið er ekki að fara að hægja neitt á sér. Það er líklegt að hann muni reyna að nýta sér forskotið sem Bakuda hefur skapað honum. Það er bara spurning um hvar, hvenær, og hversu mikið. Fer eftir því formi sem hann er í núna."
 
 Okkur gafst ekki tími til að ræða efnið frekar. Tattletale lyfti fingri að vörum sínum og við þögnuðum. Nokkrum sekúndum síðar kom pabbi minn gangandi inn í stofuna haldandi á bakka. Hann lagði bakkann í kjöltuna á mér. Þrjár krúsir, skál með smákökum og tvær ristaðar beyglur, önnur með sultu og hin með smjöri.
 
@@ -322,10 +322,10 @@ Vegna þess að ég hafði neytt sjálfa mig til að mæta í skólann eftir að
 
 Ég dottaði í smá stund og þegar ég vaknaði fattaði ég að ég hafði hvílt höfuðið upp við handlegginn á Brian. Jafnvel eftir að ég hafði opnað augun og farið að fylgjast með myndinni í sjónvarpinu leyfði ég höfðinu að vera þar sem það var. Hann virtist ekki kippa sér upp við það. Saman hlógum við að hinum ýmsu grínatriðum í myndinni, og Lisa fékk hikstakast, sem lét okkur Brian hlæja meira.
 
-Ég sá pabba á gangi inni í eldhúsi, líklega svo hann gæti fylgst mér og augu okkar mættust. Ég vinkaði lítillega, án þess að hreyfa handlegginn, bara höndina mína, og brosti. Brosið sem hann svaraði mér með var mögulega fyrsta alvöru ósvikna brosið sem ég hafði séð hann setja upp í langan tíma.
+Ég sá pabba á gangi inni í eldhúsi, líklega svo hann gæti fylgst með mér og augu okkar mættust. Ég vinkaði lítillega, án þess að hreyfa handlegginn, einungis höndina, og brosti. Brosið sem hann svaraði mér með var mögulega fyrsta alvöru ósvikna brosið sem ég hafði séð hann setja upp í langan tíma.
 
 Vandræðin í skólanum? Ég hefði áhyggjur af því síðar, ef það þýddi að ég gæti notið stundarinnar í núinu eins og ég gerði akkúrat núna.
 
 ---
 
-[Fyrri hluti](Ormur-04.10.md) - Næsti hluti
+[Fyrri hluti](Ormur-04.10.md) - [Næsti hluti](Ormur-04.11.x.[Sjónarhorn;Brutus].md)
