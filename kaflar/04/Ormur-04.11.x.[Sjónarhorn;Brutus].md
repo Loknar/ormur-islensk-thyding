@@ -126,7 +126,7 @@ Fullt af fólki. Í hvert sinn sem Brutus heldur að allt fólkið hafi staðnæ
 
 Fólk liggur á gólfinu kjökrandi. Lyktar eins og blóð og hræðsla. Enginn hlaupandi eins og íkorni lengur.
 
-Meistari kallar, "Ekki meira!" og orðin eru fyrir fólkið og ekki fyrir Brutus. Bæði orðin eru orð sem Brutus þekkir. Ekki þýðir vont og er fyrir hluti sem Brutus ætti ekki að gera. Meira er það sem Meistari segir þegar hún gefur nammi eða kastar boltum eða fyllir matarskálar af mat. Brutus skilur ekki vegna þess að annað orðið er vont en hitt gott. En Meistari er aðal og Meistari veit svo það er í lagi.
+Meistari kallar, "Ekki meir!" og orðin eru fyrir fólkið og ekki fyrir Brutus. Bæði orðin eru orð sem Brutus þekkir. Ekki þýðir vont og er fyrir hluti sem Brutus ætti ekki að gera. Meir er það sem Meistari segir þegar hún gefur nammi eða kastar boltum eða fyllir matarskálar af mat. Brutus skilur ekki vegna þess að annað orðið er vont en hitt gott. En Meistari er aðal og Meistari veit svo það er í lagi.
 
 Meistari tekur upp hringlandi lykla frá kjökrandi manneskju og tekur upp búr með reiðum hundi í sem lyktar eins og blóð. Meistari tekur búr út og setur í bíl og segir Brutusi að passa bílana. Fjöldi fólks er að yfirgefa rýmið en Brutus hleypir engum nálægt bílunum. Er góður voffi. Meistari fer inn og sækir fleiri búr með reiðum hundum og setur þá alla í bílinn. Svo fer Meistari aftur inn. Meistari nær í bakpoka og notar reipi úr bakpokanum til að binda búrin saman og binda búrin föst við bílinn.
 
@@ -140,4 +140,4 @@ Meistari flettir bréfi af hlut úr vasanum og borðar. Meistari gefur Brutusi h
 
 ---
 
-[Fyrri hluti](Ormur-04.11.md) - Næsti kafli
+[Fyrri hluti](Ormur-04.11.md) - [Næsti kafli](../05/Ormur-05.01-Býflugnabú.md)
