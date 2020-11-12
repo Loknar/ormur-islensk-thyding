@@ -2,9 +2,9 @@
 
 ---
 
-## Kafli 5 - Býflugnabú
+## Kafli 5 - Býkúpa
 
-### Býflugnabú 5.1
+### Býkúpa 5.1
 
 Staðurinn var látlaus. Eins og hver annar staður og hvarf inn í fjöldann í þessari löngu götu. Allt var í niðurníðslu. Fyrir hverja verslun eða veitingastað sem þú fórst fram hjá gastu einungis giskað á hvort staðurinn væri enn í rekstri eða ekki.
 
