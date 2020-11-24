@@ -41,6 +41,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Madison Clements | Marsý Klemens |
 | Max Anders | Magnús Andersen Ríkharðsson |
 | Rachel Lindt | Rakel Lilliendahl |
+| Rebecca Costa-Brown | Rebekka Móströnd |
 | Sophia Hess | Soffía Hermansen |
 | Taylor Hebert | Tara Hallfjörð Daníelsdóttir |
 | Victoria Dallon | Vigdís Dalmann Markúsdóttir |
@@ -49,7 +50,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 
 | Nafn | Íslenskun |
 | --- | --- |
-| Alexandria | Alexandra |
+| Alexandria | Alexandría |
 | Armsmaster | Atgeir |
 | Bakuda | Búmmhildur |
 | Bitch | Tík |
@@ -57,6 +58,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Brandish | Brotkúla |
 | Bug | Padda |
 | Clockblocker | Stundarstinni |
+| Coil | Koli |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
 | Gallant | Galvaskur |
@@ -102,10 +104,12 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Leviathan | Ægir |
 | Simurgh | Sígyn |
 
-## Af hverju ertu að leggja á þig alla þessa þýðingarvinnu endurgjaldslaust?
+## Af hverju að leggja á sig alla þessa þýðingarvinnu án þess að hafa af því fjárhagslegan ávinning?
 
 ...
 
 ![Uppruni myndarinnar: https://www.deviantart.com/cpericardium/art/Garbage-Day-779750446](/myndir/hafdu-thetta-ormurinn-thinn.png?raw=true "Já Alexandria það er þessi spyrill þarna.")
 
-En grínlaust, þessi saga er mjög löng, um 1.680.000 orð, og ég efast um að ein manneskja ráði við að þýða hana alla í frítíma sínum.
+Af því að þessi þýðingarvinna er skemmtileg? :bug:
+
+En grínlaust, þessi saga er mjög löng, um 1.680.000 orð í heildina, ég efast um að ein manneskja ráði við að þýða hana alla í frítíma sínum. En sjáum hvað verður.
