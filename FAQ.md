@@ -56,7 +56,7 @@ Að því sögðu getur verið mjög skemmtilegt að finna sniðugar þýðingar
 | Bonesaw | Beinsög |
 | Brandish | Brotkúla |
 | Bug | Padda |
-| Clockblocker | Klokkblokker |
+| Clockblocker | Stundarstinni |
 | Contessa | Urður |
 | Eidolon | Sigurboði |
 | Gallant | Galvaskur |
