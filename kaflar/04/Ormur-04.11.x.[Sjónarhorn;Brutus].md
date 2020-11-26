@@ -4,7 +4,7 @@
 
 ### Skel 4.11.x - Sjónarhorn; Brutus
 
-Blístur. Eyrun á Brutusi sperrast. Nú þegar stokkinn af rúminu þegar seinna blístrið kemur, rétt á eftir því fyrsta. Tvö blýstur eins og þetta þýða að koma. Meistari biður hunda bara að koma að aðalstiganum þegar það er kominn tími á göngutúra!
+Blístur. Eyrun á Brutusi sperrast. Nú þegar stokkinn af rúminu þegar seinna blístrið kemur, rétt á eftir því fyrsta. Tvö blístur eins og þetta þýða að koma. Meistari biður hunda bara að koma að aðalstiganum þegar það er kominn tími á göngutúra!
 
 Göngutúrar eru í algjöru uppáhaldi hjá Brutusi!
 
