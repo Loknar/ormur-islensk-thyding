@@ -8,17 +8,17 @@ Blístur. Eyrun á Brutusi sperrast. Nú þegar stokkinn af rúminu þegar seinn
 
 Göngutúrar eru í algjöru uppáhaldi hjá Brutusi!
 
-Aðrir hundar eru að rekast utan í Brutus við að flýta sér að koma til Meistara. Of hratt í beygjuna, runnið á gólfinu og klórað í gólfið með klónum til að ná gripi. Hrasað smá. Judas hikar, þefar, en Angelica er á undan Brutusi núna. Vond stelpa. Brutus geltir og urrar smá á Angelicu, hún stoppar og lýtur, hleypir Brutusi fram úr sér. Brutus er aðal hundurinn. Angelica ætti að vita það. Brutus kemur til Meistara fyrstur, eins og það á að vera.
+Aðrir hundar eru að rekast utan í Brutus við að flýta sér að koma til Meistara. Of hratt í beygjuna, runnið á gólfinu og klórað í gólfið með klónum til að ná gripi. Hrasað smá. Judas hikar, þefar, en Angelica er á undan Brutusi núna. Vond stelpa. Brutus geltir og urrar smá á Angelicu, hún stoppar og vægir, hleypir Brutusi fram úr sér. Brutus er æðsti hundurinn. Angelica ætti að vita það. Brutus kemur til Meistara fyrstur, eins og það á að vera.
 
-Brutus er aðal hundurinn, en Meistari er aðal. Leiðtogi hópsins. Ekki leiðtogi fólkshópsins en það er allt í lagi. Hún beygir sig niður og klórar Brutusi um hálsinn og axlirnar, djúpt, hart. Fullkomið klór af því að það skilar sér í gegnum þykkan feldinn á Brutusi. Skottið dinglar svo ákaflega að afturfæturnir renna til á gólfinu. Fleygir sér niður og snýr maganum upp svo Meistari geti klórað hann. Hún gerir það og það er hreinn unaður.
+Brutus er aðal hundurinn, en Meistari er aðal. Leiðtogi hópsins. Ekki leiðtogi mannahópsins en það er allt í lagi. Hún beygir sig niður og klórar Brutusi um hálsinn og axlirnar, djúpt, hart. Fullkomið klór af því að það skilar sér í gegnum þykkan feldinn á Brutusi. Skottið dinglar svo ákaflega að afturfæturnir renna til á gólfinu. Fleygir sér niður og snýr maganum upp svo Meistari geti klórað hann. Hún gerir það og það er hreinn unaður.
 
-Meistari er slösuð og eftir sig. Brutus veit þetta. Þegar hún beygir sig niður hreyfir hún sig hægar, hún gefur frá sér lítil hljóð þegar hún hreyfir sig mikið eins og þegar hún beygir sig niður og þegar hún stendur upp. Hún lyktar eins og þornað blóð og stress og sviti á hátt sem hún gerir vanalega ekki.
+Meistari er slösuð og enn í sárum. Brutus veit þetta. Þegar hún beygir sig niður hreyfir hún sig hægar, hún gefur frá sér lítil hljóð þegar hún hreyfir sig mikið eins og þegar hún beygir sig niður og þegar hún stendur upp. Hún lyktar eins og þornað blóð og stress og sviti á hátt sem hún gerir vanalega ekki.
 
 "Angelica, Judas, bíða," segir Meistari, "þið komið ekki með." Brutus skilur ekki en Meistari hljómar afsakanlega. Eins og þegar hún var að hlaupa upp stigann og sparkaði óvart í kinnina á Brutusi af því að hann hljóp of nálægt fyrir aftan hana. Hún klórar hverjum hundi fyrir sig. Ekki frábær klór. Þau eru kát að vera klórað en þau eru ekki að koma með í göngutúr. Brutus hættir að sveifla skottinu. Er Brutus ekki að koma með í göngutúr?
 
 Meistari tekur upp taum. "Brutus, góður voffi. Göngutúr?" Skottið sveiflast brjálæðislega mikið aftur. Meistari segir Brutusi að sitja, Brutus sest. Er góður voffi. Meistari setur plastpoka í vasa, setur á sig bakpoka. Bakpoki óvenjulegt. Meistari tekur venjulega ekki bakpoka með í göngutúra. Erindi?
 
-"Við erum að fara að sinna smá erindi, allt í lagi voffi?" segir Meistari. Brutus sveiflar skottinu. Brutus hafði rétt fyrir sér! Erindi alltaf áhugaverð. Brutus tekur nokkur skref áfram af eftirvæntingu en man svo að vera góður voffi. Meistari kann ekki að meta þegar Brutus togar í tauminn. Hún klæðir sig í skó, sækir lyklana sem hringlar í, sækir snarkandi bréfhulda hluti sem hún borðar stundum sem Brutus getur ekki borðað því Brutus er hundur. Bréfhuldu hlutirnir fara í vinstri vasann. Hún sækir hundanammi og setur í hægri vasann, stoppar. Gefur Judas og Angelicu. Fær Brutus hundanammi?
+"Við erum að fara að sinna smá erindi, allt í lagi Brutus?" segir Meistari. Brutus sveiflar skottinu. Brutus hafði rétt fyrir sér! Erindi alltaf áhugaverð. Brutus tekur nokkur skref áfram af eftirvæntingu en man svo að vera góður voffi. Meistari kann ekki að meta þegar Brutus togar í tauminn. Hún klæðir sig í skó, sækir lyklana sem hringlar í, sækir snarkandi bréfhulda hluti sem hún borðar stundum sem Brutus getur ekki borðað því Brutus er hundur. Bréfhuldu hlutirnir fara í vinstri vasann. Hún sækir hundanammi og setur í hægri vasann, stoppar. Gefur Judas og Angelicu. Fær Brutus hundanammi?
 
 "Nammi seinna," segir Meistari. 'Seinna' er orð sem Brutus kannast við en ekki klár á merkingunni. Brutus mjög vonsvikinn þegar nammi fer aftur í hægri vasann hjá Meistara. Hoppar aðeins upp til að minna Meistara á að hún gleymdi að láta Brutus fá nammi. Meistari gefur frá sér reiðileg smelluhljóð og Brutus skammast sín núna. Skott kjurrt, eyru niður.
 
@@ -38,7 +38,7 @@ Lyktarlausi maðurinn bíður eftir einhverju, segir síðan, "Hvernig hefurðu 
 
 "Þegar ég fann ykkur hafði einn þeirra hengt þig upp í loftið á úlnliðunum og var að nota þig eins og boxpúða."
 
-Meistari brýtur augnsamband. Brutus veit að þetta er merki um að Meistari sér lyktarlausa manninn sem hennar aðal. Þegar hún byrjar aftur að tala hljómar hún ennþá reið, "Ég gerði heimskuleg mistök. Mér leiddist, ég var eirðarlaus, ég ákvað að taka göngutúr með Angelicu og sá hvort ég gæti hitt á ykkur á leiðinni að staðnum þar sem við földum peningana. Einhver bar kennsl á mig og elti mig. Það var heimskulegt af mér, ég ætla að draga lærdóm af því. Ég hef það fínt núna, við náðum að endurheimta peningana, þetta reddaðist, það er allt í góðu núna."
+Meistari brýtur augnsamband. Brutus veit að þetta er merki um að Meistari sér lyktarlausa manninn sem hennar aðal. Þegar hún byrjar aftur að tala hljómar hún ennþá reið, "Ég gerði heimskuleg mistök. Mér leiddist, ég var eirðarlaus, ég ákvað að taka göngutúr með Angelicu og sjá hvort ég gæti hitt á ykkur á leiðinni að staðnum þar sem við földum peningana. Einhver bar kennsl á mig og elti mig. Það var heimskulegt af mér, ég ætla að draga lærdóm af því. Ég hef það fínt núna, við náðum að endurheimta peningana, þetta reddaðist, það er allt í góðu núna."
 
 Lyktarlausi maðurinn andvarpar. Hljómar örlítið reiður þegar hann segir, "Það er ekki allt í .. nei, ekkert mál. Enginn tilgangur að fara út í það. En hvað ef einhver ber kennsl á þig þegar þú ferð í göngutúr með *hann*?"
 
@@ -56,7 +56,7 @@ En má ekki verða of spenntur. Brutus er góður voffi. Togar ekki í tauminn e
 
 Meistari labbar hægar en venjulega. Notar meira aðra löppina en hina. Brutus er ákafur að labba en togar ekki í tauminn jafnvel þó Meistari gangi hægar en venjulega.
 
-Svo mikið af lyktum! Að vera í eigin umráðasvæði er gott en að fara í göngutúr er að þefa af öllum heiminum. Alltaf eitthvað nýtt, alltaf nýjir hlutir til að þefa af um gamla hluti. Þefa af þessu pissi og veit næstum allt um hundinn sem þefaði. Tík. Mun mögulega lóða á næstunni. Býr með krökkum. Piss lyktar eins og stress og borða of mikið gras og sofa of mikið og vera feitur hundur.
+Svo mikið af lyktum! Að vera í eigin yfirráðasvæði er gott en að fara í göngutúr er að þefa af öllum heiminum. Alltaf eitthvað nýtt, alltaf nýjir hlutir til að þefa af um gamla hluti. Þefa af þessu pissi og veit næstum allt um hundinn sem pissaði. Tík. Mun mögulega lóða á næstunni. Býr með krökkum. Piss lyktar eins og stress og borða of mikið gras og sofa of mikið og vera feitur hundur.
 
 Þefa af þessum kúk til að læra hluti um hundinn sem kúkaði. Soltinn hundur. Meistari soltna hundsins líklega soltinn líka. Margir svoleiðis hér um slóðir. Ekki eins og gamla heimilið hans Brutusar. Hvorki fólk né hundar voru sveltandi þar um slóðir. En Brutus man að hann var óhamingjusamur. Gamli Meistarinn hunsaði alltaf Brutus. Skildi Brutus einan eftir í kjallara allan dag þar til Brutus stoppaði vondan kall sem kom inn um kjallaragluggann. Er í lagi núna. Brutus er hamingjusamur með nýja Meistara.
 
