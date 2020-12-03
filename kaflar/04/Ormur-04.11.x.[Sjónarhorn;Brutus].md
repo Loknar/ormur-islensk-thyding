@@ -140,4 +140,4 @@ Meistari flettir bréfi af hlut úr vasanum og borðar. Meistari gefur Brutusi h
 
 ---
 
-[Fyrri hluti](Ormur-04.11.md) - [Næsti kafli](../05/Ormur-05.01-Býkúpa.md)
+[Fyrri hluti](Ormur-04.11.md) - [Næsti kafli](../05/Ormur-05.01-Bæli.md)
