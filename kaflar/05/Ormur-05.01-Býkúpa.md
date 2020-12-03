@@ -2,9 +2,9 @@
 
 ---
 
-## Kafli 5 - Býkúpa
+## Kafli 5 - Bæli
 
-### Býkúpa 5.1
+### Bæli 5.1
 
 Staðurinn var óáberandi. Eins og hver annar staður í þessari löngu götu og hann hvarf inn í fjöldann. Allt var í niðurníðslu. Fyrir hverja verslun eða veitingastað sem þú fórst fram hjá gastu einungis giskað á hvort staðurinn væri enn í rekstri eða ekki.
 
@@ -86,21 +86,21 @@ Skidmark bar grímu sem huldi efri hluta andlitsins. Á neðri hluta andlitsins 
 
 "Af því að ég er blökkumaður, hahh? Það er það sem þú stendur fyrir, ekki satt?"
 
-Kaiser svaraði, ennþá pollrólegur, "Þú getur komið þér fyrir í einum básnum vegna þess að þú og liðið þitt eruð aumkunarverðir langt leiddir aumingjar sem er ekki þess virði að tala við. Fólkið við þetta borð? Mér er ekki vel við það, en ég mun hlusta á það sem það hefur fram að færa. Það á ekki við um þig."
+Kaiser svaraði, ennþá pollrólegur, "Þú getur komið þér fyrir í einum básnum vegna þess að þú og liðið þitt eruð aumkunarverðir langt leiddir aumingjar sem er ekki þess virði að tala við. Fólkið við þetta borð? Mér er ekki vel við þau, en ég mun hlusta á það sem þau hafa fram að færa. Það á ekki við um þig."
 
 "Skíttu í þig. Hvað með þennan gæja?" Skidmark benti á Grue, "Ég veit ekki einu sinni nafnið hans og hann fær sæti við borðið."
 
-Faultline svaraði honum, "Teymið hans rændi Brockton Bay Central Bank fyrir viku síðan. Þau hafa farið gegn Lung nokkrum sinnum og eru hér enn, sem er meira en flestir geta sagt. Meira að segja fyrir utan atvikið fyrir viku síðan, þá hefur hann djúpa þekkingu um ABB gengið eftir fyrri átök sem hann getur miðlað til okkar hinna." Hún leit á Grue með svip sem gerði honum og okkur fyllilega ljóst að hann hefði ekki fengið að ekki sitja við borðið þó hann hefði viljað það. Hann kinkaði mjög lítillega kolli til samþykkis. Við höfðum rætt þetta áður en við komum hingað, sammælst um hvaða upplýsingum við myndum deila.
+Faultline svaraði honum, "Teymið hans rændi Brockton Bay Central Bank fyrir viku síðan. Þau hafa farið gegn Lung nokkrum sinnum og eru hér enn, sem er meira en flestir geta sagt. Meira að segja fyrir utan atvikið fyrir viku síðan, þá hefur hann ríka þekkingu um ABB gengið eftir fyrri átök sem hann getur miðlað til okkar hinna." Hún leit á Grue með svip sem gerði honum og okkur fyllilega ljóst að hann hefði ekki fengið að ekki sitja við borðið þó hann hefði viljað það. Hann kinkaði mjög lítillega kolli til samþykkis. Við höfðum rætt þetta áður en við komum hingað, sammælst um hvaða upplýsingum við myndum deila.
 
 "Hvað hefur *þú* gert til að vinna þér inn sæti við borðið?" spurði hún Skidmark.
 
 "Við höfum yfirráðasvæði-"
 
-"Þið hafið ekkert," svaraði Grue, örlítið hámæltur, krafturinn hans varpaði röddina, "þið eruð vesældar hugleysingjar sem þykist drottna yfir svæði sem enginn annar lítur við, bruggið eiturlyf og seljið þau börnum."
+"Þið hafið ekkert," svaraði Grue, örlítið hámæltur, krafturinn hans varpaði röddina, "þið eruð vesælir hugleysingjar sem þykist drottna yfir svæði sem enginn annar lítur við, bruggið þar eiturlyf og seljið þau börnum."
 
 "Við eigum viðskipti við *alla*, ekki bara-"
 
-"Finndu þér bás," bergmálandi rödd Grue greip fram fyrir hann. Skidmark leit á hann, síðan yfir hin sem sátu við borðið. Öll þögul, hvert einasta augnapar sem hann gat séð í gegnum grímurnar starði á hann.
+"Finndu þér bás," bergmálandi rödd Grue greip fram fyrir hann. Skidmark leit á hann, síðan yfir þau hin sem sátu við borðið. Öll þögul, hvert einasta augnapar sem hann gat séð í gegnum grímurnar starði á hann.
 
 "Skíthælar. Heldri manna skríll og skíthælar, öll ykkar," hreytti Skidmark úr sér, gekk síðan þungum skrefum að básnum þar sem liðsfélagar hans höfðu nú þegar komið sér fyrir.
 
@@ -112,15 +112,15 @@ Faultline svaraði honum, "Teymið hans rændi Brockton Bay Central Bank fyrir v
 
 "Flökkufólk er kannski betra orð. Það sem hefur verið að eiga sér stað hér var of spennandi til að gefa því ekki gaum, svo ég ákvað að við myndum húsvitja." sagði maðurinn með pípuhattinn og beygði sig formlega, fyrsta sinn sem ég hafði séð slíkt. "Ég geng undir nafninu Trickster."
 
-"Þú þekkir reglurnar hér?" spurði Grue Trickster.
+"Þú þekkir reglurnar?" spurði Grue Trickster.
 
 "Við höfum komið við á álíka stöðum. Ég held ég geti giskað. Engin slagsmál, engir kraftar, engar óþarfa egningar eða háð til þess eins að valda vandræðum. Afleiðingar? Allir aðrir viðstaddir leggja deilumál sín til hliðar og snúa þig í jörðina."
 
-"Nógu nálægt því. Það er dýrmætt að geta hist á hlutlausu svæði, svo við getum átt siðmenntað spjall okkar á milli."
+"Nógu nálægt því. Það er dýrmætt að geta hist á hlutlausu svæði, svo við getum átt siðmenntaðar samræður okkar á milli."
 
-"Auðvitað. Ég mun ekki reyna að þræta fyrir það. Endilega, haldið áfram eins og ég sé ekki viðstaddur."
+"Auðvitað. Ég mun ekki reyna að halda öðru fram. Endilega, haldið áfram eins og ég sé ekki hérna."
 
-Þegar Trickster fékk sér sæti og skellti fótunum á borðið kvartaði enginn, en Skidmark virtist í vígahug. Restin af Travelers teyminu settist í bás ekki langt frá okkur. Górilluskepnan settist á gólfið við básinn en var engu að síður nógu há í loftinu til að vera í augnhæð við liðsfélagana sína.
+Þegar Trickster fékk sér sæti og skellti fótunum upp á borðið kvartaði enginn, en Skidmark virtist í vígahug, tilbúinn að drepa einhvern. Restin af Travelers teyminu settist í bás ekki langt frá okkur. Górilluskepnan settist á gólfið við básinn en var engu að síður nógu há í loftinu til að vera í augnhæð við liðsfélaga sína.
 
 
 
