@@ -2,9 +2,9 @@
 
 ---
 
-## Kafli 5 - Hýði
+## Kafli 5 - Hreiður
 
-### Hýði 5.1
+### Hreiður 5.1
 
 Staðurinn var óáberandi. Eins og hver annar staður í þessari löngu götu og hann hvarf inn í fjöldann. Allt var í niðurníðslu. Fyrir hverja verslun eða veitingastað sem þú fórst fram hjá gastu einungis giskað á hvort staðurinn væri enn í rekstri eða ekki.
 
