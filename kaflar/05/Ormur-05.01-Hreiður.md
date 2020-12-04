@@ -122,6 +122,28 @@ Faultline svaraði honum, "Teymið hans rændi Brockton Bay Central Bank fyrir v
 
 Þegar Trickster fékk sér sæti og skellti fótunum upp á borðið kvartaði enginn, en Skidmark virtist í vígahug, tilbúinn að drepa einhvern. Restin af Travelers teyminu settist í bás ekki langt frá okkur. Górilluskepnan settist á gólfið við básinn en var engu að síður nógu há í loftinu til að vera í augnhæð við liðsfélaga sína.
 
+Coil dýfði höfðinu sínu til samþykkis og foldaði saman fingurna. Þegar hann tók til máls var rödd hans mjúk, "Mér sýnist allir mættir sem von var á. Lung virðist ekki ætla að sýna sig en ég efast um að það komi nokkrum hér á óvart, sökum þess sem stendur til að ræða á þessum fundi hér í kvöld."
+
+"ABB gengið," svaraði Kaiser.
+
+"Þrjátíuogfimm einstaklingar staðfestir látnir, yfir hundrað alvarlega slasaðir. Vopnaburður á götum úti fyrir allra augum. Áframhaldandi skotbardagar milli ABB meðlima og sameinaðra sveita lögreglu og hersins. Húsnæði annarra klíka og teyma ítrekað rænd og rupluð og sprengjuárásir á staði þar sem ABB gengið heldur að við gætum hugsanlega verið með einhverja starfsemi. ABB hefur tekið sér stóraukið yfirráðasvæði á kostnað okkar hinna hér, og lítur ekki út fyrir að það sé að fara að hægja á í þeim efnum á næstunni," útskýrði Coil fyrir alla viðstadda.
+
+"Það *er* óheppilegt," sagði Kaiser.
+
+"Þetta er skeytingarlaus glæfraleikur hjá þeim," sagði Faultline. Hún lét það hljóma eins og um væri að ræða glæp álíka grimmilegan og að myrða kettlinga.
+
+Coil kinkaði kolli, "Sem er meginhluturinn sem við ættum að hafa áhyggjur af. ABB gengið getur ekki viðhaldið þessu. Eitthvað mun bresta, gengið mun tortíma sjálfu sér fyrr eða síðar, og mun líklega hætta að vera vandamál. Ef þetta hefði þróast á annan hátt hefðum við getað horft á þetta sem góða þróun mála. En megin vandamálið sem við stöndum frammi fyrir er að aðgerðir ABB gengisins eru að draga of mikla athygli til góðu borgarinnar okkar. Þjóðarvarnarliðið og herinn hafa komið upp tímabundinni viðveru til að aðstoða við að viðhalda lögum og reglu. Hetjur flykkjast til borgarinnar til að aðstoða Protectorate samtökin við að missa ekki tökin á ástandinu. Þetta gerir starfsemi okkar allra hér erfiða."
+
+"Bakuda er megindrifkrafturinn í þessu öllu saman," stakk Grue inn í, "Lung er kannski leiðtoginn, en allt veltur á stelpunni. Hún 'herkvaddi' fólk með því að ráðast inn á heimili þeirra að nóttu til, yfirbugaði það og plantaði sprengjum í höfuð þess. Hún notaði síðan þessar sprengjur til að neyða fórnarlömb sín til að taka fleira fólk höndum. Eflaust yfir þrjúhundruð manns á þessari stundu. Hvert og eitt þeirra veit að ef það þóknast ekki þeim skipunum sem Bakuda gefur þeim þá endar líf þeirra með sprengjunum í höfðum þeirra. Þar af leiðandi eru langflest þeirra tilbúin að leggja líf sitt að veði vegna þess að hinn valmöguleikinn er annaðhvort fulltryggður dauðdagi eða að horfa upp á fjölskyldur sínar deyja fyrir bregðast henni. Að taka hana úr leik er aðalmarkmiðið okkar, en hún hefur búið svo um hnútana að allar sprengjurnar hennar hrökkva af stað um leið og hjartað hennar hættir að slá, svo þetta verður aðeins flóknara en launmorð."
+
+Hann teygði aðra höndina inn í myrkrið sem sveipaði bringuna hans og dró fram pakka. "Hún tók upp myndskeið af fyrirsátinni sem hún lagði fyrir hópinn minn fyrir viku síðan og skildi hana eftir þegar hún flúði. Þetta eru afrit af þessu myndskeiði. Kannski að þetta nýtist til að auðvelda ykkur að skilja hana betur."
+
+Grue dreifði brenndum geisladiskum til allra við borðið.
+
+Þetta var *okkar* leið til að sýna styrk okkar. Upptakan sýndi allt frá tímapunktinum þar sem Bakuda hafði brætt Park Jihoo í súpukenndan poll fram að tímapunktinum þar sem hún hafði sett af stað seinni sprengjuna í miðjum hópnum hennar. Við seinni sprenginguna hafði myndavélin fallið um koll, snúið frá átökunum en tekið áfram upp hljóð af byssuskotum og loks myrkrinu hans Grue þegar hann huldi svæðið, en sýndi ekki partinn þar sem við hlupum í burtu. Upptakan sýndi ekki veikleika okkar, hversu heppin við höfðum verið að komast undan, né hversu illa undirbúin við höfðum í raun verið. Það lét alla vita hvað við höfðum staðið frammi fyrir, lét alla vita að við höfðum komist undan heilu og höldnu og að allir meðlimir hefðu verið í standi til að mæta á þennan fund. Það mundi teljast sem plús í kladdann fyrir orðstír okkar í augum flestra.
+
+Ég var ekki alveg búin að ná mér af heilahristingnum og Alec var enn að kveinka sér vegna kippa sem hann fékk í handlegginn, en Brian hafði lagt áherslu á mikilvægi þess að við myndum öll mæta, til að skapa þá blekkingu að við hefðum öll komist undan tilræði Bakuda án nokkurra alvarlegra meiðsla. Þegar ég horfði á hina hópana og hvernig fólk bar sig vissi ég að hann hafði haft rétt fyrir sér.
+
 
 
 ---
