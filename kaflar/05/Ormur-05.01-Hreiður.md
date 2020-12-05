@@ -134,7 +134,7 @@ Coil dýfði höfðinu sínu til samþykkis og foldaði saman fingurna. Þegar h
 
 Coil kinkaði kolli, "Sem er meginhluturinn sem við ættum að hafa áhyggjur af. ABB gengið getur ekki viðhaldið þessu. Eitthvað mun bresta, gengið mun tortíma sjálfu sér fyrr eða síðar, og mun líklega hætta að vera vandamál. Ef þetta hefði þróast á annan hátt hefðum við getað horft á þetta sem góða þróun mála. En megin vandamálið sem við stöndum frammi fyrir er að aðgerðir ABB gengisins eru að draga of mikla athygli til góðu borgarinnar okkar. Þjóðarvarnarliðið og herinn hafa komið upp tímabundinni viðveru til að aðstoða við að viðhalda lögum og reglu. Hetjur flykkjast til borgarinnar til að aðstoða Protectorate samtökin við að missa ekki tökin á ástandinu. Þetta gerir starfsemi okkar allra hér erfiða."
 
-"Bakuda er megindrifkrafturinn í þessu öllu saman," stakk Grue inn í, "Lung er kannski leiðtoginn, en allt veltur á stelpunni. Hún 'herkvaddi' fólk með því að ráðast inn á heimili þeirra að nóttu til, yfirbugaði það og plantaði sprengjum í höfuð þess. Hún notaði síðan þessar sprengjur til að neyða fórnarlömb sín til að taka fleira fólk höndum. Eflaust yfir þrjúhundruð manns á þessari stundu. Hvert og eitt þeirra veit að ef það þóknast ekki þeim skipunum sem Bakuda gefur þeim þá endar líf þeirra með sprengjunum í höfðum þeirra. Þar af leiðandi eru langflest þeirra tilbúin að leggja líf sitt að veði vegna þess að hinn valmöguleikinn er annaðhvort fulltryggður dauðdagi eða að horfa upp á fjölskyldur sínar deyja fyrir bregðast henni. Að taka hana úr leik er aðalmarkmiðið okkar, en hún hefur búið svo um hnútana að allar sprengjurnar hennar hrökkva af stað um leið og hjartað hennar hættir að slá, svo þetta verður aðeins flóknara en launmorð."
+"Bakuda er megindrifkrafturinn í þessu öllu saman," stakk Grue inn í, "Lung er kannski leiðtoginn, en allt veltur á stelpunni. Hún 'herkvaddi' fólk með því að ráðast inn á heimili þeirra að nóttu til, yfirbugaði það og plantaði sprengjum í höfuð þess. Hún notaði síðan þessar sprengjur til að neyða fórnarlömb sín til að taka fleira fólk höndum. Eflaust yfir þrjúhundruð manns á þessari stundu. Hvert og eitt þeirra veit að ef það þóknast ekki þeim skipunum sem Bakuda gefur þeim þá endar líf þeirra með sprengjunum í höfðum þeirra. Þar af leiðandi eru langflest þeirra tilbúin að leggja líf sitt að veði vegna þess að hinn valmöguleikinn er annaðhvort fulltryggður dauðdagi eða að horfa upp á fjölskyldur sínar deyja fyrir bregðast henni. Að taka hana úr leik er aðalmarkmiðið okkar, en hún hefur búið svo um hnútana að allar sprengjurnar hennar hrökkva af stað um leið og hjartað hennar hættir að slá, svo þetta verður aðeins flóknara en hreint launmorð."
 
 Hann teygði aðra höndina inn í myrkrið sem sveipaði bringuna hans og dró fram pakka. "Hún tók upp myndskeið af fyrirsátinni sem hún lagði fyrir hópinn minn fyrir viku síðan og skildi hana eftir þegar hún flúði. Þetta eru afrit af þessu myndskeiði. Kannski að þetta nýtist til að auðvelda ykkur að skilja hana betur."
 
@@ -144,7 +144,37 @@ Grue dreifði brenndum geisladiskum til allra við borðið.
 
 Ég var ekki alveg búin að ná mér af heilahristingnum og Alec var enn að kveinka sér vegna kippa sem hann fékk í handlegginn, en Brian hafði lagt áherslu á mikilvægi þess að við myndum öll mæta, til að skapa þá blekkingu að við hefðum öll komist undan tilræði Bakuda án nokkurra alvarlegra meiðsla. Þegar ég horfði á hina hópana og hvernig fólk bar sig vissi ég að hann hafði haft rétt fyrir sér.
 
+"Svo," Coil lét orðið hanga á meðan hann lét braka sérstaklega í hverjum hnúa hægri handar. "Erum við sammála? ABB gengið getur ekki fengið að halda áfram að vera starfrækt."
 
+Það var kinkað kolli og skvaldrað samþykkisorðum af öllum sem sátu við borðið, sem og fjölmörgum öðrum í rýminu.
+
+"Þá legg ég til að við stofnum til vopnahlés. Ekki bara milli aðila hér, heldur einnig milli okkar og laganna. Ég myndi hafa samband við yfirvöld og gera þeim ljóst að þar til þetta mál er útkljáð myndu gengi borgarinnar halda ólöglegri starfsemi í algjöru lágmarki, einungis allra nauðsynlegasta starfsemi fengi að halda sér, og við munum sjá til þess að aðrir innan yfirráðasvæða okkar hlíti þessum tilmælum. Það mundi gera lögreglunni og hernum kleift að einbeita sér að ABB. Það munu verða engar valdbeitingar, engar valdabaráttur, engar yfirtökur á yfirráðasvæðum milli okkar. Við stöndum saman með þeim sem við umberum til að fullvissa sigur, og við látum þá eiga sig sem við getum ekki átt samstarf með."
+
+"Svo það sé ljóst, teymið mitt mun ekki taka beinan þátt í þessu án ástæðu," sagði Faultline, "við munum ekki ráðast gegn ABB nema þeir standi í vegi okkar eða einhver greiðir okkur fyrir ómakið. Þetta er eina stefnan sem virkar þegar þú ert skikkja sem starfar sem málaliði. Og bara svo það sé fullljóst, ef ABB er borgunaraðilinn, þá verðum ég og teymið mitt hinni hliðinni í komandi átökum."
+
+"Óheppilegt, en þú og ég getum spjallað saman að fundi loknum. Ég vil helst hafa hlutina einfalda," sagði Coil, "ertu sátt við aðra kima samkomulagsins?"
+
+"Halda starfsemi í lágmarki, ekki fara gegn öðrum hópum? Það er venjulegt ástand hjá teyminu mínu."
+
+"Gott. Kaiser?"
+
+"Ég hugsa að þetta sé ásættanlegt samkomulag," samþykkti Kaiser.
+
+"Ég var búinn að ræða við hópinn minn að haga seglum á ekki ósvipaðan hátt og Coil lagði til," sagði Grue, "við erum sátt með tillöguna."
+
+"Jú," sagði Trickster, "ekki vandamál fyrir okkur. Við erum um borð."
+
+Allir sem sátu við langborðið innsigluðu samkomulagið með handaböndum.
+
+"Skondið," muldraði Tattletale.
+
+Ég tók augun af því sem gekk á kringum langborðið og leit á hana, "Hvað?"
+
+"Fyrir utan Grue og mögulega Faultline, eru allir nú þegar að skipuleggja hvernig þeir geti notað þessar aðstæður sér til framdráttar, eða hvernig þeir geti brugðið fæti fyrir hina."
+
+Ég leit aftur í átt að langborðinu, ofurillmennin sem sátu við það. Mér varð skyndilega ljóst hversu mikið hrátt eyðileggingarafl var samankomið í þessari látlausu krá.
+
+Þetta gæti flækt málin.
 
 ---
 
