@@ -14,7 +14,7 @@ Kráin var með skilti sem á stóð 'Somer's Rock'. Það voru járnrimlar fyri
 
 Það voru þrjú manns inni í Somer's Rock þegar við mættum. Ein var grámygluleg tuttuguogeitthvað stúlka með brúnt hár klædd í svolítið krumpaðan barþjónsbúning, hún starði á okkur á meðan við gengum inn en gerði annars ekkert til að bjóða okkur velkomin. Tveir eineggja tvíburar stóðu fyrir aftan barinn lengst í horninum fjær okkur, líklega eldri bræður hennar, uppteknir við að þvo upp glös og veittu okkur enga athygli. Annar þeirra var í kjólaskyrtu og með svuntu og leit út fyrir að vera barþjónn en hinn var í Hawaii skyrtu og svörtum bol innan undir. Að klæðaburðinum undanskildum voru þeir nákvæmlega eins, jafn háir, eins klipping, sömu eiginleikar, hegðun og svipbrigði.
 
-Fjöldi borða hafði verið skeytt saman og stólum raðað í kring í miðju rýminu, en við gengum framhjá þeim og komum okkur fyrir á borði úti í horni. Tattletale, Bitch, Grue, Regent og ég komum okkur öll fyrir á úrsérgengnum bólstruðum bekkjunum. Ég kallaði þau það í hausnum á mér, af því að í raun voru þau ekki Lisa, Brian, Rachel og Alec þessa stundina. Við vorum öll klædd í búningana okkar.
+Fjöldi borða hafði verið skeytt saman og stólum raðað í kring í miðjum salnum, en við gengum framhjá þeim og komum okkur fyrir á borði úti í horni. Tattletale, Bitch, Grue, Regent og ég komum okkur öll fyrir á úrsérgengnum bólstruðum bekkjunum. Ég kallaði þau það í hausnum á mér, af því að í raun voru þau ekki Lisa, Brian, Rachel og Alec þessa stundina. Við vorum öll klædd í búningana okkar.
 
 Þegar við höfðum komið okkur fyrir kom stúlkan með grámyglulega svipinn til okkar, lagði minnisblokk á borðið og starði síðan á mig með hálf ögrandi augnarráði. Hún sagði ekki orð.
 
@@ -36,7 +36,7 @@ Fólkið sem kom inn með Purity voru fleiri meðlimir Empire Eighty Eight. Krie
 
 Þetta var ekki einu sinni allt paramennalið Kaisers. Fyrir utan sjaldgæfar undantekningar eins og þegar Lung réði Bakuda í lið með sér þegar hún hafði verið staðsett í Cornell, þá virtust flestar klíkur fá til sín nýja meðlimi eingöngu af svæðinu sem þær voru starfræktar á. Kaiser var öðruvísi. Hann var einn af betur þekktu ofurillmennunum í Ameríku og áleit hvíta kynstofninn æðri öðrum, og fólk sem deildi þessum hugsjónum hans var annað hvort ráðið frá öðrum fylkjum eða ríkjum, eða að kom á eigin vegum til að ganga til liðs við hann. Flest fólk staldraði þó stutt við undir stjórn hans af einhverjum ástæðum, en þetta gerði hann engu að síður að valdamesta einstaklingi í Brockton Bay þegar kom að hreinu afli paramenna sem störfuðu undir honum.
 
-Kaiser settist á annan enda langborðsins í miðju rýmisins, fylgdarlið hans fann sér sæti og stóla fyrir aftan hann. Purity hvorki slakaði á né pantaði drykk einhverra hluta vegna. Hún sat á stól rúmum meter fyrir aftan Kaiser, með handleggina krossaða og annað hnéð hvílandi yfir hitt, hún fylgdist grannt með öllu því sem fram fór. Miðað við upplýsingarnar sem mér hafði tekist að grafa upp úr gömlum fréttagreinum gat Purity skapað skært ljós og hlaðið það með hreyfiorku. Hún var svona eins og mannlegt vasaljós, ef ljósið frá vasaljósinu gæti hoggið gat í gegnum múrveggi og rifið strætisvagna í tvennt. Á lista yfir paramenni með öflugari krafta stigaðist hún nálægt toppinum, hún var í raun eins og fljúgandi eins manns stórskotalið.
+Kaiser settist á annan enda langborðsins í miðjum salnum, fylgdarlið hans fann sér sæti og stóla fyrir aftan hann. Purity hvorki slakaði á né pantaði drykk einhverra hluta vegna. Hún sat á stól rúmum meter fyrir aftan Kaiser, með handleggina krossaða og annað hnéð hvílandi yfir hitt, hún fylgdist grannt með öllu því sem fram fór. Miðað við upplýsingarnar sem mér hafði tekist að grafa upp úr gömlum fréttagreinum gat Purity skapað skært ljós og hlaðið það með hreyfiorku. Hún var svona eins og mannlegt vasaljós, ef ljósið frá vasaljósinu gæti hoggið gat í gegnum múrveggi og rifið strætisvagna í tvennt. Á lista yfir paramenni með öflugari krafta stigaðist hún nálægt toppinum, hún var í raun eins og fljúgandi eins manns stórskotalið.
 
 Coil steig inn á eftir Empire Eighty Eight, það stakk í stúf að hann var einn. Engir lífverðir, engin sýning á valdi. Hann var hávaxnari en Grue, en grannur allt að þeim punkti að virðast lítið annað en skinn og bein. Skinnþéttur búningurinn hans huldi hann frá hvirfli til ilja, það voru ekki einu sinni holur fyrir augun, nef og munn, hann var svo skinnþéttur að maður gat séð rifbeinin hans og liðamót. Búningurinn var svartur með hvítan snák, höfuð snáksins hófst á enni Coil og búkurinn gekk niður aftan á höfðinu og hlykkjaðist í kringum líkamann þar til hann endaði loks á öðrum ökklanum hans. Hann settist við enda borðsins á móti Kaiser.
 
@@ -44,7 +44,7 @@ Coil steig inn á eftir Empire Eighty Eight, það stakk í stúf að hann var e
 
 "Coil? Get ekki sagt neitt er varðar kraftana hans, en hann er einn af öflugari lykilmönnum í borginni. Lítur á sig sem skákmeistara. Þú veist, eins og herkænskumeistari eða leikstjórnandi. Stjórnar meira en helmingi miðbæjarins með toppþjálfuðum bardagasveitum með besta fáanlega vopnabúnað. Megnið af fólkinu hans er fyrrverandi hermenn hvaðanæva að úr heiminum. Ef hann yfir höfuð hefur einhverja krafta þá er hann sá eini innan samtakanna hans."
 
-Ég kinkaði kolli. Hann var eins og andstæðan við Kaiser hugsaði ég. Ég hefði spurt fleiri spurninga, en fleiri voru streymandi inn í rýmið.
+Ég kinkaði kolli. Hann var eins og andstæðan við Kaiser hugsaði ég. Ég hefði spurt fleiri spurninga, en fleiri voru streymandi inn í salinn.
 
 Faultline. Ég hafði fundið hitt og þetta um hana í rannsóknum mínum. Hún var tuttugu og eitthvað, og slétt svart hárið var bundið í langt flagsandi tagl. Búningurinn hennar var undarlegur, eins og blanda af óeirðabúning, bardagalistabúning og kjól. Fjórar manneskjur gengu inn með henni. Ég þekkti þau öll með nafni. Newter var ber að ofan og hvorki í skóm né hönskum, sem gerði það enn meira áberandi að húðin hans var neon appelsínugul frá toppi til táar. Hann var með ljósblá augu, dökkrautt hár sem virtist vera blautt og einsoghálfs metra langan eðlulegan hala. Gregor, eða Snigillin Gregor eins og hann var stundum kallaður, leit út eins og langt leiddur offitusjúklingur, hann var meðalmaður á hæð og ekki með eitt einasta hár á öllum líkamanum. Húðin hans var mjólkurhvít og hálfgagnsæ, svo þú gast séð mynda fyrir hinum ýmsu líffærum í honum. Eins og einhver með slæmt tilvik af unglingabólum var hann með litlar flygsur af skeljum eða hreistri á húðinni. Flygsurnar litu út eins og hrúðurkarlar, nema með einhverskonar spíralformi.
 
@@ -76,7 +76,7 @@ Tattletale kinkaði kolli, "Teymið hennar Faultline tekur að sér flestöll ve
 
 "En okkur hefur ekki mistekist eitt einasta starf, og það er það sem skiptir máli," ítrekaði Tattletale.
 
-Annar hópur gekk inn, og það var eins og alda af fyrirlitningu helltist yfir andlit annarra viðstaddra í rýminu. Ég hafði séð tilvísanir á veraldarvefnum og lesið fréttaskýringar um þennan hóp, en meðlimirnir voru ekki sérlega huggulegt myndefni. Skidmark, Moist, Squealer. Tveir gaurar og ein stelpa, þau voru skólabókardæmi um það að skikkjur voru ekkert endilega aðlaðandi, velmegandi eða ónæmar fyrir áhrifum djúprar eiturlyfjaneyslu. Harðkjarnafíklar og dópsalar sem svo vildi til að höfðu öðlast ofurkrafta.
+Annar hópur gekk inn, og það var eins og alda af fyrirlitningu helltist yfir andlit annarra viðstaddra í salnum. Ég hafði séð tilvísanir á veraldarvefnum og lesið fréttaskýringar um þennan hóp, en meðlimirnir voru ekki sérlega huggulegt myndefni. Skidmark, Moist, Squealer. Tveir gaurar og ein stelpa, þau voru skólabókardæmi um það að skikkjur voru ekkert endilega aðlaðandi, velmegandi eða ónæmar fyrir áhrifum djúprar eiturlyfjaneyslu. Harðkjarnafíklar og dópsalar sem svo vildi til að höfðu öðlast ofurkrafta.
 
 Skidmark bar grímu sem huldi efri hluta andlitsins. Á neðri hluta andlitsins sást að hann var dökkur á hörund, með gríðarlega óheilbrigðar útlítandi varir og tennur sem litu meira út eins og pistasíuhnetur en nokkuð annað. Hann gekk upp að langborðinu og teygði sig í áttina að einum stólnum. Áður en hann gat gripið í stólbakið sparkaði Kaiser stólnum um koll svo kröftuglega að hann rann meðfram gólfinu og úr seilingarfjarlægð.
 
@@ -106,7 +106,7 @@ Faultline svaraði honum, "Teymið hans rændi Brockton Bay Central Bank fyrir v
 
 Þjónustustúlkan tók upp stólinn á miðju gólfinu og kom honum aftur fyrir á sínum stað við borðið án þess að líta í augun á neinum þeirra sem við borðið sat, hún lagði síðan minnisblokkina sína og beið eftir að allir höfðu skrifað pantanirnar sínar í hana. Mér varð skyndilega ljóst *hvers vegna* kráin var með heyrnarlausa þjónustustúlku.
 
-"Ég ætla að gerast svo djarfur að gera tilkall til sætis, hugsa ég," sagði einhver frá útidyrahurðinni. Flestir viðstaddir litu í átt að manni sem stóð í dyragættinni, hann var klæddur í svartan búning með rauða grímu og pípuhatt. Ég fékk svona hálfgert Baron Samedi væb frá honum. Liðsfélagar hans fylgdu á eftir honum inn í rýmið, öll í búningum í sama rauða og svarta litastílnum, en hver og einn annars í mismunandi stíl. Stúlka með sólarskraut, piltur í þykkri brynju með ferkantaða grímu, og einhver skepna svo stór að hún varð að skríða á höndum og fótum inn um dyrnar. Það var erfitt að lýsa henni, hún var eins og fjögurra arma hárlaus górilla, klædd í vesti, með grímu og legghlífar, allt í sama rauða litastílnum og hin voru með, fimmtán sentimetra klær stóðu fram úr hverjum fingri og hverri tá.
+"Ég ætla að gerast svo djarfur að gera tilkall til sætis, hugsa ég," sagði einhver frá útidyrahurðinni. Flestir viðstaddir litu í átt að manni sem stóð í dyragættinni, hann var klæddur í svartan búning með rauða grímu og pípuhatt. Ég fékk svona hálfgert Baron Samedi væb frá honum. Liðsfélagar hans fylgdu á eftir honum inn í salinn, öll í búningum í sama rauða og svarta litastílnum, en hver og einn annars í mismunandi stíl. Stúlka með sólarskraut, piltur í þykkri brynju með ferkantaða grímu, og einhver skepna svo stór að hún varð að skríða á höndum og fótum inn um dyrnar. Það var erfitt að lýsa henni, hún var eins og fjögurra arma hárlaus górilla, klædd í vesti, með grímu og legghlífar, allt í sama rauða litastílnum og hin voru með, fimmtán sentimetra klær stóðu fram úr hverjum fingri og hverri tá.
 
 "Þið eruð Travelers teymið, rétt?" sagði Coil með mjúkri röddu, "Þið eruð aðkomufólk."
 
@@ -146,7 +146,7 @@ Grue dreifði brenndum geisladiskum til allra við borðið.
 
 "Svo," Coil lét orðið hanga á meðan hann lét braka sérstaklega í hverjum hnúa hægri handar. "Erum við sammála? ABB gengið getur ekki fengið að halda áfram að vera starfrækt."
 
-Það var kinkað kolli og skvaldrað samþykkisorðum af öllum sem sátu við borðið, sem og fjölmörgum öðrum í rýminu.
+Það var kinkað kolli og skvaldrað samþykkisorðum af öllum sem sátu við borðið, sem og fjölmörgum öðrum í salnum.
 
 "Þá legg ég til að við stofnum til vopnahlés. Ekki bara milli aðila hér, heldur einnig milli okkar og laganna. Ég myndi hafa samband við yfirvöld og gera þeim ljóst að þar til þetta mál er útkljáð myndu gengi borgarinnar halda ólöglegri starfsemi í algjöru lágmarki, einungis allra nauðsynlegasta starfsemi fengi að halda sér, og við munum sjá til þess að aðrir innan yfirráðasvæða okkar hlíti þessum tilmælum. Það mundi gera lögreglunni og hernum kleift að einbeita sér að ABB. Það munu verða engar valdbeitingar, engar valdabaráttur, engar yfirtökur á yfirráðasvæðum milli okkar. Við stöndum saman með þeim sem við umberum til að fullvissa sigur, og við látum þá eiga sig sem við getum ekki átt samstarf með."
 
@@ -172,10 +172,10 @@ Allir sem sátu við langborðið innsigluðu samkomulagið með handaböndum.
 
 "Fyrir utan Grue og mögulega Faultline, eru allir nú þegar að skipuleggja hvernig þeir geti notað þessar aðstæður sér til framdráttar, eða hvernig þeir geti brugðið fæti fyrir hina."
 
-Ég leit aftur í átt að langborðinu, ofurillmennin sem sátu við það. Mér varð skyndilega ljóst hversu mikið hrátt eyðileggingarafl var samankomið í þessari látlausu krá.
+Ég leit aftur í átt að langborðinu, ofurillmennin sem sátu við það. Mér varð skyndilega ljóst hversu mikið hrátt eyðileggingarafl var samankomið í þessum sal þessarar látlausu kráar.
 
 Þetta gæti flækt málin.
 
 ---
 
-[Fyrri kafli](../04/Ormur-04.11.x.[Sjónarhorn;Brutus].md) - Næsti hluti
+[Fyrri kafli](../04/Ormur-04.11.x.[Sjónarhorn;Brutus].md) - [Næsti hluti](Ormur-05.02.md)
