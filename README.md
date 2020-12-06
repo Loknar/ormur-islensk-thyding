@@ -5,9 +5,9 @@
 
 Íslensk þýðing á [vefbókinni **Worm** eftir **John C. McCrae**](https://parahumans.wordpress.com/) (eða [**Wildbow**](https://tvtropes.org/pmwiki/pmwiki.php/Creator/Wildbow)).
 
-Ef þú vilt bara byrja að lesa söguna þá vinsamlegast lestu fyrst fyrirvarann hér fyrir neðan, smelltu síðan [hér](kaflar/01/Ormur-01.01-Myndbreyting.md) til að byrja!
+Ef þú vilt bara byrja að lesa söguna þá vinsamlegast lestu fyrst fyrirvarann fyrir neðan, smelltu síðan [hér](kaflar/01/Ormur-01.01-Myndbreyting.md) til að byrja!
 
-Langi þig að hjálpa við gerð þýðingarinnar lestu fyrst fyrirvarann hér fyrir neðan og skimaðu svo í framhaldinu yfir [FAQ: Algengar Spurningar](FAQ.md).
+Langi þig að hjálpa við gerð þýðingarinnar lestu fyrst fyrirvarann fyrir neðan og skimaðu svo í framhaldinu yfir [FAQ: Algengar Spurningar](FAQ.md).
 
 ## Fyrirvari
 
