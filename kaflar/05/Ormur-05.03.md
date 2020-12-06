@@ -136,7 +136,7 @@ Shadow Stalker batt saman á mér úlnliðina með einhverju sem ég giskaði á
 
 Pabbi færði pokana í aðra höndina svo hann gæti hjálpað við að leiða mig að útidyrahurðinni. Hann leit um öxl á Alan, "Mér þykir þetta mjög leitt. Þetta er heilahristingurinn."
 
-Alan kinkaði kolli með samkenndarsvip. Rauðar kinnarnar hans voru enn rauðari eftir athyglina sem atvikið hafði skapað, "Ég veit. Þetta er allt í lagi. Bara ... kannski ætti hún að vera heima að jafna sig ögn lengur og sleppa skólanum aðeins lengur."
+Alan kinkaði kolli með samkenndarsvip. Rauðar kinnarnar hans voru enn rauðari eftir athyglina sem atvikið hafði skapað, "Ég veit. Þetta er allt í lagi. Bara ... kannski ætti hún að vera heima að jafna sig ögn lengur og bíða aðeins með að mæta aftur í skólann."
 
 Pabbi kinkaði kolli vandræðalega. Mér leið illa við að sjá það. Mér leið enn verr að vera leidd svona í burtu eins og glæpamaður, á meðan Shadow Stalker rétti Emmu hönd til að toga hana á fætur. Emma ljómaði og brosti einhverju breiðasta brosi sem ég hafði séð á henni þrátt fyrir rautt marið á annarri kinninni hennar. Brosandi álíka mikið yfir því hvernig atvikið hafði þróast, hugsaði ég, og sökum þess að hún var að fá tækifæri til að tala við áhyggjufullu ofurhetjuna.
 
