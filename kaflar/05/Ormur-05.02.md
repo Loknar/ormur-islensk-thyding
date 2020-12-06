@@ -130,7 +130,7 @@ Grue sleppti takinu á hálsinum á Bitch og steig til hliðar, hann foldaði he
 
 Ef það var það sem hann ætlaði að segja, skildi ég hvers vegna Tattletale ákvað að grípa inní.
 
-"Þú ert örg, ég veit," sagði Tattletale. Bitch var starandi inn um gluggann á bókabúðinni, forðaðist augnsamband á meðan hún nuddaði á sér hálsinn. Tattletale hélt áfram, "Þér líður eins og þú hafir gert ekkert rangt, og ef þú fengir annan séns til að gera hlutina öðruvísi, mundir þú hallast að því að gera allt á sama hátt og áður .. þrátt fyrir þá staðreynd að fólk sé brjálað út í þig."
+"Þú ert örg, ég veit," sagði Tattletale. Bitch var starandi inn um gluggann á bókabúðinni, forðaðist augnsamband á meðan hún nuddaði á sér hálsinn. Tattletale hélt áfram, "Þér líður eins og þú hafir gert ekkert rangt, og ef þú fengir annan séns til að gera hlutina öðruvísi, mundir þú hallast að því að gera allt á sama hátt og áður ... þrátt fyrir þá staðreynd að fólk sé brjálað út í þig."
 
 Bitch leit í augun á Tattletale. Svipbrigðin hennar voru samblanda af pirringi og leiða, "Og fólk skiptist á að tuska mig til og hreita framan í mig einhverju sálfræðibulli."
 
@@ -152,7 +152,7 @@ Regent hafði ekki sagt orð í gegnum þetta allt. Lisa hafði sagt mér þegar
 
 Mér líkaði þetta ekki. Þessi núningur var að spilla vinskapnum sem hópurinn annars hafði, undiralda af spennu. Ég kunni vel við þessa krakka. Jafnvel Bitch, eða ég veit ekki, kannski var fullmikið að segja að ég kunni vel við hana, en ég gat kannski borið virðingu fyrir henni sökum þess sem hún bar að borðinu.
 
-Ég vissi að það yrði erfitt að segja skilið við þau, að svíkja þau og fara með upplýsingarnar um þau í Protectorate samtökin, um leið og ég hefði upplýsingarnar sem ég þurfti .. en þegar ég hugsaði um það, þá vissi ég að ég gæti bitið í það súra epli og gert það. Ég myndi hafa minni eftirsjá til lengri tíma litið. Ég gæti jafnvel verið stolt af því, þegar litið væri á heildarmyndina, kannski.
+Ég vissi að það yrði erfitt að segja skilið við þau, að svíkja þau og fara með upplýsingarnar um þau í Protectorate samtökin, um leið og ég hefði upplýsingarnar sem ég þurfti ... en þegar ég hugsaði um það, þá vissi ég að ég gæti bitið í það súra epli og gert það. Ég myndi hafa minni eftirsjá til lengri tíma litið. Ég gæti jafnvel verið stolt af því, þegar litið væri á heildarmyndina, kannski.
 
 Meira og meira sá ég daginn fyrir mér þar sem ég færi loks með upplýsingarnar til yfirvalda og segði skilið við Undersiders teymið sem daginn sem ég vildi umbreyta sjálfri mér. Breyta Skitter í hetju í augum almennings, gera það sem ég gæti til að laga ímynd mína, og endurskilgreina Taylor yfir í manneskju uppfulla sjálfstrausts, útgeislunar og hugrekkis. Ef ég gæti slitið tengslum við Undersiders og tekið þetta stökk, þá vissi ég að ég gæti breytt sjálfri mér.
 
