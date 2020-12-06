@@ -182,4 +182,4 @@ Við sögðum ekkert meira restina af leiðinni til baka. Líklega fyrir bestu.
 
 ---
 
-[Fyrri hluti](Ormur-05.01-Hreiður.md) - [Næsti hluti](Ormur-05.02.md)
+[Fyrri hluti](Ormur-05.01-Hreiður.md) - [Næsti hluti](Ormur-05.03.md)
