@@ -14,7 +14,7 @@ Múgur fólks sem hafði stöðvað göngu sína og samtöl til að hlusta að t
 
 "Jájá. Ef það er ekkert fleira sem þig vantar."
 
-Ég átti að byrja að mæta aftur í skólann á morgun og pabbi hafði tekið eftir hversu stressuð ég var, þess vegna hafði hann boðist til að fara með mér að versla. Mér fannst smá óþarfi að fara svona að versla eftir að hafa farið í heljarinnar verslunarleiðangur með Lisu og strákunum fyrir viku síðan, en það var tækifæri til að verða mér út um nokkra nauðsynjahluti og eyða smá tíma með pabba.
+Ég átti að byrja að mæta aftur í skólann á morgun og pabbi hafði tekið eftir hversu stressuð ég var, þess vegna hafði honum dottið í hug að bjóðast til að fara með mér að versla. Mér fannst smá óþarfi að fara svona að versla eftir að hafa farið í heljarinnar verslunarleiðangur með Lisu og strákunum fyrir viku síðan, en það var tækifæri til að verða mér út um nokkra nauðsynjahluti og eyða smá tíma með pabba.
 
 Í innkaupapokanum sem pabbi hélt á var nýr bakpoki fyrir mig, nokkrar stílabækur, pennar, sex bækur, og nýjir hlaupaskór. Allt hlutir sem ég kunni ekki við að kaupa með Lisu, af því að þeir voru svo óspennandi, eins og stílabækurnar, eða vegna þess að þetta voru hlutir sem tók mig heila eilífð að velja, sérstaklega bækurnar og hlaupaskórnir.
 
@@ -186,4 +186,4 @@ Hann losaði sætisólarnar og faðmaði mig, andlitið mitt upp að öxlinni ha
 
 ---
 
-[Fyrri hluti](Ormur-05.02.md) - Næsti hluti
+[Fyrri hluti](Ormur-05.02.md) - [Næsti hluti](Ormur-05.04.md)
