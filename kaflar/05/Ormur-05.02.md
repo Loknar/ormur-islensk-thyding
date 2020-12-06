@@ -8,7 +8,7 @@ Coil ávarpaði alla í salnum, "Þá er meginefni fundarins í kvöld lokið. E
 
 "Ég er með kvörtun," sagði maður í hinum enda salarins. Fólk leit í áttina að samferðamönnum Kaisers. Hookwolf.
 
-Hann bar grímu sem var lítið annað en gróf málmplata sem hafði verið skorin þannig að hún bar útlínur úlfhöfuðs,  hún var fest framan á andlit hans með ólum úr svörtu leðri. Hann var með keðju þrædda í gegnum beltislykkjurnar á gallabuxunum sínum og með ofvaxna beltasylgju framaná. Sylgjan var skreytt með úlfi ofan á hakakrossi, sama merki og var húðflúrað á annan upphandlegginn hans. Hinn upphandleggurinn var flúraður með einföldu 'E88'. Fyrir utan grímuna og beltisskylgjuna var varla hægt að segja að hann klæddist búning. Hann var ber að ofan, berfættur og með gríðarlegt magn líkamshára. Ljóst hárið var sítt og fitugt og hann var kafloðinn á bringu, maga og handleggjum. Skutullaga spjót og málmhlutar sem líktust önglum stóðu út úr hlífum sem hann bar á öxlum, olnbogum og hnjám, allt saman hulið göddum eða hvössum brúnum.
+Hann bar grímu sem var lítið annað en gróf málmplata sem hafði verið skorin þannig út að hún bar útlínur úlfhöfuðs,  hún var fest framan á andlit hans með ólum úr svörtu leðri. Hann var með keðju þrædda í gegnum beltislykkjurnar á gallabuxunum sínum og með ofvaxna beltissylgju framaná. Sylgjan var skreytt með úlfi ofan á hakakrossi, sama merki og var húðflúrað á annan upphandlegginn hans. Hinn upphandleggurinn var flúraður með einföldu 'E88'. Fyrir utan grímuna og beltissylgjuna var varla hægt að segja að hann klæddist búning. Hann var ber að ofan, berfættur og með gríðarlegt magn líkamshára. Ljóst hárið var sítt og fitugt og hann var kafloðinn á bringu, maga og handleggjum. Skutullaga spjót og málmhlutar sem líktust önglum stóðu út úr hlífum sem hann bar á öxlum, olnbogum og hnjám, allt saman hulið göddum eða hvössum brúnum.
 
 Engum hafði hingað til tekist að sleppa úr Birdcage fangelsinu, ofurillmennafangelsi sem starfrækt var í Bresku Kólumbíu. Hookwolf hafði þó sloppið hvorki meira né minna en tvisvar úr haldi þegar hann hafði verið á leið þangað í hlekkjum. Hann var kaldrifjaður morðingi og hikaði ekki við að myrða fólk sem átti ekki samleið með arískum hugsjónum hans.
 
@@ -20,7 +20,7 @@ Hann leit í átt að básnum okkar, heiðblá augu sáust í gegnum rifurnar á
 
 "Bitch," greip Bitch framfyrir hann, "Einungis snobbuðu hetjurnar kalla mig Hellhound. Nafnið er Bitch."
 
-"Mér gæti ekki verið meira drull," urraði Hookwolf, "Þú réðst á starfsemina mína. Sigaðir djöfuls hundinum mínum á *viðskiptavini* mína. Þú mátt telja þig heppna að ég var ekki á staðnum, hóruungi."
+"Mér gæti ekki verið meira drull," urraði Hookwolf, "Þú réðst á starfsemina mína. Sigaðir djöfuls hundinum þínum á *viðskiptavini* mína. Þú mátt telja þig heppna að ég var ekki á staðnum, hóruungi."
 
 Grue horfið á Bitch í langa stund, leit svo aftur á Hookwolf, "Þetta er áhættan sem við tökum öll með að halda úti starfsemi í Brockton Bay. Skikkjur geta og munu standa í vegi fyrir þér, hetjur jafnt sem illmenni."
 
@@ -174,7 +174,7 @@ En, eins fáránlega og það hljómaði, þá myndi mér líða ennþá verr me
 
 Hún sneri höfðinu í átt að mér, leit í augun á mér. "Ég lét þá borga í blóði."
 
-Ég fann gæsahúð færast yfir bakið, hálsinn og handleggina mína. Ég var ekki viss hvort mér liði betur eða verr ef hún mundi útskýra þetta nánar.
+Ég fann gæsahúð færast yfir bakið, hálsinn og handleggina mína. Ég var ekki viss hvort mér liði betur eða verr ef hún mundi útskýra það nánar.
 
 "Gott," svaraði ég.
 
@@ -182,4 +182,4 @@ Við sögðum ekkert meira restina af leiðinni til baka. Líklega fyrir bestu.
 
 ---
 
-[Fyrri hluti](Ormur-05.01-Hreiður.md) - Næsti hluti
+[Fyrri hluti](Ormur-05.01-Hreiður.md) - [Næsti hluti](Ormur-05.02.md)
