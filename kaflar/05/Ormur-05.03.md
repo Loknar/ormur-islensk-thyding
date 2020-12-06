@@ -110,9 +110,9 @@ Hendur gripu mig með þjösnagangi og sneru mér við. Shadow Stalker. Hún kom
 
 "Mér þykir þetta svo leitt," sagði pabbi og flýtti sér að útskýra fyrir ofurhetjunni og pabba Emmu, "hún er enn að jafna sig af heilahristing, getur meðal annars valdið skapsveiflum. Ég bjóst ekki við neinu svona öfgakenndu."
 
-Shadow Stalker hóf að lesa yfir honum, "Þetta er hvorki staður né stund fyrir rifrildi. Ef dóttir þín er svona ... andlega óstabíl, þá er það á þína ábyrgð."
+Shadow Stalker hóf að lesa yfir honum, "Þetta er hvorki staður né stund fyrir rifrildi. Ef dóttir þín er ... í svona miklu andlegu ójafnvægi, þá er það á þína ábyrgð."
 
-Mig langaði að skellihlæja. Að einhverju leiti vegna kátínusvimans sem ég fékk við að gera eitthvað á hlut Emmu. Að öðru leiti vegna þess að öll atburðarásin var svo gjörsamlega á hvolfi. Shadow Stalker var í raun ekkert sérstök. Hún var bara unglingsstelpa og hún var að lesa yfir pabba mínum, fullorðnum einstakling. Fólkið sem fylgdist með sá Emmu sem fórnarlambið og mig sem meintan geranda. En ef þú sviptir hulunni af undirliggjandi aðstæðum, ef allir vissu sólarsöguna á bakvið kinnhestinn, þá væru eftirmálarnir svo allt öðruvísi. Emma væri gerandinn og pabbi minn væri ekki svona samvinnuþýður við þessa unglingsstelpu sem var að lesa honum pistilinn.
+Mig langaði að skellihlæja. Að einhverju leiti vegna kátínusvimans sem ég hafði fengið við að gera eitthvað á hlut Emmu. Að öðru leiti vegna þess að öll þessi atburðarás var svo gjörsamlega á hvolfi. Shadow Stalker var í raun ekkert sérstök. Hún var bara unglingsstelpa og hún var að lesa yfir pabba mínum, fullorðnum manni. Fólkið sem fylgdist með sá Emmu sem fórnarlambið og mig sem meintan geranda. En ef þú sviptir hulunni af undirliggjandi aðstæðum, ef allir vissu sólarsöguna á bakvið kinnhestinn, þá væru eftirmálarnir svo allt öðruvísi. Emma væri gerandinn og pabbi minn væri ekki svona samvinnuþýður við þessa unglingsstelpu sem var að lesa honum pistilinn.
 
 Ég var nógu skýr í kollinum til að halda aftur af mér að hlæja ekki upphátt. Kannski var það adrenalínið, léttirinn sem flæddi yfir mig sökum þess sem ég hafði gert. Kannski var það heilahristingurinn að hafa áhrif á mig aftur, en ég sannfærði sjálfa mig að gera svolítið annað.
 
@@ -160,21 +160,21 @@ Ef ég segði honum það ekki núna efaðist um að ég mundi nokkurntímann se
 
 "Ó? Hvað?" Hann virtist ringlaður.
 
-Ég hafði ekki í mér að útskýra nánar. Ég leyfði honum bara að hugsa það nánar.
+Ég hafði ekki í mér að útskýra nánar. Ég leyfði honum bara að hugsa það.
 
-Eftir langa þögn sagði hann einungis, "Ó."
+Eftir langa þögn sagði hann bara, "Ó."
 
 "Alveg frá byrjun. Hún og vinir hennar," bætti ég við að óþörfu.
 
-Tár byrjuðu að vella upp, mér að óvörum. Ég hafði ekki gert mér grein fyrir því að ég var við það að fara að grenja. Ég tók af mér gleraugun til að nudda burtu tárin, en fleiri gusuðust fram.
+Tár byrjuðu að vella fram, mér að óvörum. Ég hafði ekki gert mér grein fyrir því að ég var við það að fara að grenja. Ég tók af mér gleraugun til að þerra burtu tárin, en fleiri gusuðust fram.
 
-"Heimski höfuðáverki," muldraði ég, "heimsku skapsveiflur. Ég ætti að vera orðin laus við þær."
+"Heimski höfuðáverki," muldraði ég, "heimsku skapsveiflur. Ég ætti að vera orðin góð af þeim."
 
-Pabbi hristi hausinn, "Taylor, elskan mín, ég held að það sé ekki eina ástæðan."
+Pabbi hristi höfuðið, "Taylor, elskan mín, ég held að það sé ekki eina ástæðan."
 
 Hann lagði bílnum út í kant.
 
-"Hvað ertu að gera?" spurði ég og þurrkaði tárin af kinnunum, "Við verðum að vera komin heim fyrir útgöngubannið."
+"Hvað ertu að gera?" spurði ég og þerraði tárin af kinnunum, "Við verðum að vera komin heim fyrir útgöngubannið."
 
 Hann losaði sætisólarnar og faðmaði mig, andlitið mitt upp að öxlinni hans. Gráturinn breyttist í ekka.
 
@@ -182,7 +182,7 @@ Hann losaði sætisólarnar og faðmaði mig, andlitið mitt upp að öxlinni ha
 
 "En-"
 
-"Við höfum tíma. Taktu eins langan tíma og þú þarft."
+"Við höfum tíma. Taktu þér allan þann tíma sem þú þarft."
 
 ---
 
