@@ -8,7 +8,7 @@
 
 "Viðskiptavinir athugið. Vegna útgöngubannsins sem sett hefur verið á hér í borginni lokum við klukkan sautján þrjátíu. Vinsamlegast sýnið biðlund og verið samvinnuþýð við löggæslumenn við innganga og útganga Weymouth verslunarmiðstöðvarinnar, og hafið í huga að vera komin heim fyrir klukkan átján núll núll. Takk fyrir."
 
-Múgur fólks sem hafði stöðvað göngu sína og samtöl til að hlusta að tilkynninguna hélt aftur af stað og skvaldurskliður tók yfir verslunarmiðstöðina aftur, eins og einhver hefði stöðvað myndbandsupptöku og sett hana af stað aftur.
+Múgur fólks sem hafði stöðvað göngu sína og samtöl til að hlusta að tilkynninguna hélt aftur af stað og skvaldurskliður tók yfir verslunarmiðstöðina að nýju, eins og einhver hefði stöðvað myndbandsupptöku og sett hana af stað aftur.
 
 Ég leit á pabba, "Eigum við að koma okkur? Vera á undan öngþveitinu?"
 
@@ -18,7 +18,7 @@ Múgur fólks sem hafði stöðvað göngu sína og samtöl til að hlusta að t
 
 Í innkaupapokanum sem pabbi hélt á var nýr bakpoki fyrir mig, nokkrar stílabækur, pennar, sex bækur, og nýjir hlaupaskór. Allt hlutir sem ég kunni ekki við að kaupa með Lisu, af því að þeir voru svo óspennandi, eins og stílabækurnar, eða vegna þess að þetta voru hlutir sem tók mig heila eilífð að velja, sérstaklega bækurnar og hlaupaskórnir.
 
-Það var fallegt af pabba að taka mig í þessa verslunarferð í mollið, og það hafði á einhvern hátt mun meiri þýðingu fyrir mig en þegar Lisa hafði splæst í föt á mig fyrir nokkurhundruð dali. Kannski vegna þess að þetta voru hlutir fyrir mig.
+Það var fallegt af pabba að taka mig í þessa verslunarferð í mollið, og það hafði á einhvern hátt mun meiri þýðingu fyrir mig en þegar Lisa hafði splæst í föt á mig fyrir nokkurhundruð dali. Kannski vegna þess að fötin voru í raun til að þóknast fólki í kringum mig en þetta voru hlutir fyrir mig.
 
 Við héldum í átt að útganginum, og ég varð að halda aftur af mér að dæsa ekki. Það var enn hálftími í lokun en það var nú þegar aragrúi fólks við útganginn. Kannski eitthvað um helmingur fólksins var að reyna að koma sér úr verslunarmiðstöðinni, hinn helmingurinn virtist bara eitthvað vera að væflast.
 
@@ -44,11 +44,11 @@ Skikkjur virtust alltaf svo miklu stærri og merkilegri í fréttunum. Þegar þ
 
 "Alan," sagði pabbi minn skyndilega, "langt síðan."
 
-Ég sneri mér við. Ég hefði átt að vera hissa, eða slegin, en þegar ég hafði áttað mig á hvern við höfðum rekist á var eins og allur vindur væri horfinn úr mér.
+Ég sneri mér við. Ég hefði átt að vera hissa, eða slegin, en þegar ég hafði áttað mig á hvern við höfðum rekist á var eins og allur vindur væri farinn úr mér.
 
 "Gott að sjá þig, Danny. Ég hef ætlað að bjalla í þig."
 
-"Ekkert mál, ekkert mál," sagði pabbi og hló. Hann tók í höndina á rauðhærða manninum. Alan Barnes. "Á þessum tímum getum við prísað okkur sæla að hafa nóg að gera. Er dóttir þín hérna með þér?"
+"Ekkert mál, ekkert mál," sagði pabbi og hló. Hann tók í höndina á rauðhærða manninum með rjóðu kinnarnar. Alan Barnes. "Á þessum tímum getum við prísað okkur sæla að hafa nóg að gera. Er dóttir þín hérna með þér?"
 
 Alan leit í kringum sig, "Hún var þyrst, svo ég er að bíða í röðinni á meðan hún ... ah, þarna er hún."
 
@@ -76,27 +76,27 @@ Emma beindi athyglinni frá því að horfa á hetjurnar og hermennina að stör
 
 "Svo. Er Emma enn í fyrirsætustörfum?"
 
-"Hvort hún er!" sagði Alan og brosti stoltur, "Og henni gengur alveg glimrandi í því, en það er ekki ástæðan fyrir því að við erum hérna í dag. Við komum bara til að athuga með útsölurnar," Alan hló lítillega, "dóttir mín lét mig ekki í friði eftir að hún heyrði af þeim."
+"Hvort hún er!" sagði Alan og brosti stoltur, "Og henni gengur alveg glimrandi vel í því, en það er ekki ástæðan fyrir því að við erum hérna í dag. Við komum bara til að athuga með útsölurnar," Alan hló lítillega, "dóttir mín lét mig ekki í friði eftir að hún heyrði af þeim."
 
-"Ah. Við líka. Versla, meina ég. Taylor slasaðist í einni sprengingunni, um það bil þegar þetta dæmi byrjaði allt saman," sagði pabbi minn, "hún er búin að vera heima að jafna sig síðan þá. Mér datt í hug að við færum saman að versla áður en hún færi aftur af stað með daglegt líf."
+"Ah. Við líka. Versla, meina ég. Taylor slasaðist í einni sprengingunni, um það bil þegar þetta dæmi byrjaði allt saman," sagði pabbi minn, "hún er búin að vera heima að jafna sig síðan þá. Mér datt í hug að við færum saman að versla áður en hún færi aftur af stað með hið daglega líf."
 
 "Engir alvarlegir áverkar vona ég?" spurði Alan.
 
 "Ég er í heilu lagi," svaraði ég og tók ekki augun af Emmu.
 
-"Það er gott að heyra. Guð minn góður, þú ert þriðja manneskjan sem ég þekki sem hefur orðið fórnarlamb þessa stjórnleysis. Einn félagi minn er að jafna sig eftir aðgerð. Ein sprengingin kristallaði handlegginn hans, handleggurinn breyttist í gler. Hræðilegt mál." sagði Alan við pabba minn, "Hvenær endar þetta eiginlega?"
+"Það er gott að heyra. Guð minn góður, þú ert þriðja manneskjan sem ég þekki sem hefur orðið fyrir barðinu á þessu stjórnleysi. Einn félagi minn er að jafna sig eftir aðgerð. Ein sprengingin kristallaði handlegginn hans, handleggurinn breyttist í gler. Skelfilegt." sagði Alan við pabba minn, "Hvar endar þetta eiginlega?"
 
 Á meðan feður okkar spjölluðu störðum við Emma á hvora aðra.
 
-Skyndilega brosti Emma. Þetta var bros sem ég hafði séð svo oft áður síðastliðin ár.
+Skyndilega brosti hún. Þetta var bros sem ég hafði séð svo oft áður síðastliðin ár.
 
-Þetta var brosið sem hafði heilsað mér þegar ég kom aftur í skólann eftir spítalavistina í janúar, þessi svipur sem sagði mér að hún var ekki hætt. Sami svipur og hún hafði þegar hún leit niður á mig útataða í djús og gosi inni á kvennaklósetti. Sem hún hafði þegar ég kom úr sturtu og fann fötin mín ofan í klósettskálunum, bæði íþróttafötin og venjulegu fötin mín.
+Þetta var brosið sem hafði heilsað mér þegar ég kom aftur í skólann eftir spítalavistina í janúar, þessi svipur sem sagði mér að hún var ekki hætt. Sami svipur og hún hafði þegar hún leit niður á mig útataða í djús og gosi inni á kvennaklósetti. Sem hún hafði þegar ég kom úr sturtu og fann fötin mín ofan í klósettskálunum, bæði íþróttafötin og venjulegu fötin.
 
 Sama bros og hún hafði þegar hún minnti mig á hvernig mamma mín hafði dáið, fyrir framan aðra samnemendur mína.
 
-Hljóðið frá högginu var eins og vatnsgusa í andlitið á mér. Ég fann nístandi sársauka frá staðnum þar sem einn hundurinn hennar Bitch hafði skilið eftir tannför í handleggnum mínum þegar ég hafði hitt hana fyrst. Enn ekki fyllilega gróið.
+Hljóðið frá högginu var eins og vatnsgusa í andlitið á mér. Ég fann nístandi sársauka frá staðnum þar sem einn af hundunum hennar Bitch hafði bitið mig í handlegginn þegar ég hafði hitt hana í fyrsta sinn. Enn ekki alveg gróið.
 
-Emma féll um koll og rakst utan í pabba sinn sem missti pokana sem hann hafði haldið á. Fólk í kringum okkur tók andköf.
+Emma féll um koll og rakst utan í pabba sinn sem missti pokana sem hann hélt á. Fólk í kringum okkur tók andköf.
 
 "Taylor!" hrópaði pabbi minn agndofa.
 
@@ -112,11 +112,11 @@ Hendur gripu mig með þjösnagangi og sneru mér við. Shadow Stalker. Hún kom
 
 Shadow Stalker hóf að lesa yfir honum, "Þetta er hvorki staður né stund fyrir rifrildi. Ef dóttir þín er ... í svona miklu andlegu ójafnvægi, þá er það á þína ábyrgð."
 
-Mig langaði að skellihlæja. Að einhverju leiti vegna kátínusvimans sem ég hafði fengið við að gera eitthvað á hlut Emmu. Að öðru leiti vegna þess að öll þessi atburðarás var svo gjörsamlega á hvolfi. Shadow Stalker var í raun ekkert sérstök. Hún var bara unglingsstelpa og hún var að lesa yfir pabba mínum, fullorðnum manni. Fólkið sem fylgdist með sá Emmu sem fórnarlambið og mig sem meintan geranda. En ef þú sviptir hulunni af undirliggjandi aðstæðum, ef allir vissu sólarsöguna á bakvið kinnhestinn, þá væru eftirmálarnir svo allt öðruvísi. Emma væri gerandinn og pabbi minn væri ekki svona samvinnuþýður við þessa unglingsstelpu sem var að lesa honum pistilinn.
+Mig langaði að skellihlæja. Að einhverju leiti vegna kátínusvimans sem ég hafði fengið við að gera eitthvað á hlut Emmu. Að öðru leiti vegna þess að öll þessi atburðarás var svo gjörsamlega á hvolfi. Shadow Stalker var í raun ekkert sérstök. Hún var bara unglingsstelpa og hún var að lesa yfir pabba mínum, fullorðnum manni. Fólkið sem fylgdist með sá Emmu sem fórnarlambið og mig sem meintan geranda. En ef hægt hefði verið að svipta hulunni af undirliggjandi aðstæðum, ef allir vissu söguna á bakvið kinnhestinn, þá væru eftirmálarnir svo allt öðruvísi. Emma væri gerandinn og pabbi minn væri ekki svona samvinnuþýður við þessa unglingsstelpu sem var að lesa honum pistilinn.
 
-Ég var nógu skýr í kollinum til að halda aftur af mér að hlæja ekki upphátt. Kannski var það adrenalínið, léttirinn sem flæddi yfir mig sökum þess sem ég hafði gert. Kannski var það heilahristingurinn að hafa áhrif á mig aftur, en ég sannfærði sjálfa mig að gera svolítið annað.
+Ég var nógu skýr í kollinum til að halda aftur af hlátrinum. Kannski var það adrenalínið, léttirinn sem flæddi yfir mig sökum þess sem ég hafði gert. Kannski var það heilahristingurinn að hafa áhrif á mig aftur, en ég sannfærði sjálfa mig að gera svolítið annað.
 
-Ég benti á Emmu og leit á pabba minn, "Viltu heyra hvers vegna ég sló hana?"
+Ég benti á Emmu og leit á pabba minn, "Viltu vita hvers vegna ég sló hana?"
 
 Shadow Stalker lagði aðra höndina á hliðina á andlitinu á mér, þvingaði mig til að horfa á hana, stöðvaði mig frá því að segja meira fyrir vikið. "Nei. Þessu lýkur hér og nú. Ekkert rifrildi, engar afsakanir fyrir því að þú skyndilega réðst á einhvern. Við ljúkum þessu núna. Snúðu þér við."
 
@@ -140,9 +140,9 @@ Alan kinkaði kolli með samkenndarsvip. Rauðar kinnarnar hans voru enn rauðar
 
 Pabbi kinkaði kolli vandræðalega. Mér leið illa við að sjá það. Mér leið enn verr að vera leidd svona í burtu eins og glæpamaður, á meðan Shadow Stalker rétti Emmu hönd til að toga hana á fætur. Emma ljómaði og brosti einhverju breiðasta brosi sem ég hafði séð á henni þrátt fyrir rautt marið á annarri kinninni hennar. Brosandi álíka mikið yfir því hvernig atvikið hafði þróast, hugsaði ég, og sökum þess að hún var að fá tækifæri til að tala við áhyggjufullu ofurhetjuna.
 
-Við héldum rakleiðis beina leið út í bíl, burt frá mannfjöldanum, hermönnunum og Emmu. Ég stóð við opnu farþegahurðina á meðan pabbi minn leitaði að naglaklippum til að klippa á plaststrappana.
+Við héldum rakleiðis beina leið út í bíl, burt frá mannfjöldanum, hermönnunum og Emmu. Ég stóð við opnu farþegahurðina í tvær mínútur á meðan pabbi leitaði að naglaklippum til að klippa á plaststrappana.
 
-"Ég er ekki reiður," sagði hann við mig, hljóðlátt, eftir að við höfðum komið okkur fyrir í bílnum og hann var búinn að setja bílinn í gang og á leiðinni út úr bílastæðahúsinu.
+"Ég er ekki reiður," sagði hann við mig, lágróma, eftir að við höfðum komið okkur fyrir í bílnum, hann hafði sett bílinn í gang og við vorum á leiðinni út úr bílastæðahúsinu.
 
 "Ókei."
 
@@ -152,9 +152,9 @@ Við héldum rakleiðis beina leið út í bíl, burt frá mannfjöldanum, herm�
 
 "Hm?"
 
-Ég leit niður á hendurnar mínar, nuddaði úlnliðina þar sem strapparnir höfðu skorist í þá.
+Ég leit niður í lófana mína, nuddaði úlnliðina þar sem strapparnir höfðu skorist í þá.
 
-Ef ég segði honum það ekki núna efaðist um að ég mundi nokkurntímann segja honum það.
+Ef ég segði honum það ekki núna efaðist ég um að ég mundi nokkurntímann segja honum það.
 
 "Það er hún. Emma."
 
@@ -168,7 +168,7 @@ Eftir langa þögn sagði hann bara, "Ó."
 
 Tár byrjuðu að vella fram, mér að óvörum. Ég hafði ekki gert mér grein fyrir því að ég var við það að fara að grenja. Ég tók af mér gleraugun til að þerra burtu tárin, en fleiri gusuðust fram.
 
-"Heimski höfuðáverki," muldraði ég, "heimsku skapsveiflur. Ég ætti að vera orðin góð af þeim."
+"Heimski höfuðáverki," muldraði ég, "heimsku skapsveiflur. Ég ætti að vera orðin laus við þetta rugl."
 
 Pabbi hristi höfuðið, "Taylor, elskan mín, ég held að það sé ekki eina ástæðan."
 
