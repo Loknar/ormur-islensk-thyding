@@ -66,13 +66,13 @@ Hann fylgdi fyrirmælum hennar og náði í litla handupptökuvél úr jeppanum.
 
 Pilturinn sagði eitthvað á kóresku. Hugsanlega bæn, "Gerðu það. Nei."
 
-"Í alvöru? Þau eru illmenni, ef þú hefur áhyggjur af siðferði." Bakuda hallaði höfðinu til hliðar.
+"Í alvöru? Þau eru illmenni, ef þú hefur áhyggjur af siðferðilegu hliðinni." Bakuda hallaði höfðinu til hliðar.
 
 Hann blikkaði tárum úr augunum á sér og starði upp í himininn. Byssan féll úr höndum hans niður í malbikið.
 
 "Nei semsagt. Synd. Ég hef engin not fyrir þig sem hermann." Bakuda sparkaði í magann á honum, það fast að hann féll aftur fyrir sig og lenti á bakinu.
 
-"Nei! Nei nei nei!" Pilturinn leit upp á hana, "Gerðu það ekki!"
+"Nei! Nei nei nei!" Pilturinn leit upp á hana, "Gerðu það, ekki!"
 
 Bakuda tölti örfá skref aftur. Fólkið í kring tók því sem meldingu um að færa sig líka fjær honum.
 
@@ -80,11 +80,11 @@ Hún gerði ekki neitt, sagði ekki neitt, gaf ekki frá sér neina tjáningu e�
 
 Dáinn. Hann var dáinn bara si svona.
 
-Það var erfitt að heyra fyrir öskrum, væli og geðhræringsópum. Þegar hópurinn bakkaði skelfingu lostinn frá vettvanginum og fólk var farið að reyna að fela sig skaut einn þorparinn úr byssu beint upp í loftið. Allir stoppuðu. Eftir skelfinguna og undrunina sem hafði heltekið hópinn var stundarþögn, nógu löng til að eitt tiltekið hljóð heyrðist sem stuðaði alla í agndofa þögn.
+Það var erfitt að heyra fyrir öskrum, orgi og geðhræringsópum. Þegar hópurinn bakkaði skelfingu lostinn frá vettvanginum og fólk var farið að reyna að fela sig skaut einn þorparinn úr byssu upp í loftið. Allir stoppuðu. Eftir skelfinguna og undrunina sem hafði heltekið hópinn ríkti stundarþögn, nógu löng til að eitt tiltekið hljóð heyrðist sem stuðaði alla í agndofa þögn.
 
 Það hljómaði eins og hljóðið frá hrífu að raka upp þurr laufblöð, nema háværara, gervilegt eins og verið væri að spila upptöku af því í gegnum eldgamlan símsvara. Öll augu beindust að Bakuda. Hún var hallandi sér fram með hendur um miðjuna.
 
-Hlátur. Hljóðið var hláturinn hennar.
+Hlátur. Þetta hljóð hláturinn hennar.
 
 Hún stappaði fætinum og fótaði sig, gaf frá sér hljóð sem var líklega hún að ná andanum eða að reyna að gíra niður hláturinn, en gríman hennar þýddi það ekki í neitt skiljanlegt - einungis hvæs, nánast einhljóða og óbreytilegt. Hún sneri sér í hálfhring og kallaði, "Númer sex átján! Ég var búin að gleyma að ég bjó til þessa! Fullkomið! Betra en ég hélt!"
 
@@ -132,7 +132,7 @@ Hún klappaði saman höndunum. Svo benti hún á hópinn, "Jæja! Svo, þú ...
 
 "É-ég held ég gæti það kannski," augun hennar voru stjörf á pollinum sem hafði áður verið Park Jihoo.
 
-"Og þar með lýkur þessari sýnikennslu minni," ávarpaði Bakuda til okkar, "Ótti! Það er ástæða fyrir því að Lung lagði á sig krók til að ráða mig. Ég skildi ávallt innst inni að ótti er öflugt tól. Hann orðaði það bara svo óaðfinnanlega. Alvöru ótti er blanda af fullvissu og því óútreiknanlega. Fólkið mitt veit að ef það svíkur mig þarf ég einungis að hugsa um það til að láta sprengjuna í höfði þeirra fara bingala búmm. Þau vita að ef ég dey þá fara allar sprengjur sem ég hef búið til af stað. Ekki bara sprengjurnar sem ég hef plantað í höfuðið á þeim. Hver og ein einasta. Og ég hef búið til heilan helling af þeim. Fullvissa."
+"Og þar með lýkur þessari sýnikennslu minni," ávarpaði Bakuda til okkar, "Ótti! Það er ástæða fyrir því að Lung lagði á sig krók til að ráða mig. Ég skildi ávallt innst inni að ótti er öflugt tól. Hann orðaði það bara svo óaðfinnanlega. Alvöru ótti er blanda af fullvissu og því óútreiknanlega. Fólkið mitt veit að ef það svíkur mig þarf ég einungis eina hugsun til að láta sprengjuna í höfði þeirra fara bingala búmm. Þau vita líka að ef ég dey þá fara allar sprengjur sem ég hef búið til af stað að sjálfu sér. Ekki bara sprengjurnar sem ég hef plantað í höfuðið á þeim. Hver og ein einasta skvísa. Og ég hef búið til heilan helling af þeim. Algjör fullvissa."
 
 Lisa teygði hönd sína til mín og greip í höndina á mér, kreppti hana fast.
 
